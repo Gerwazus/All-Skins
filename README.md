@@ -2,6 +2,9 @@
 If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 <br>
+# [Bartek22830 v2.3](http://bit.ly/2kGnkHk)
+![](https://osu.ppy.sh/ss/13839273/f63f)
+<br>
 # [Gerwi new new updated (my skin lul, added cuz why not)](https://gerwi.s-ul.eu/lLx5LdVj)
 ![](https://osu.ppy.sh/ss/13839062/5f9c)
 <br>
