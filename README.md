@@ -1,4 +1,4 @@
-**ALL SKINS ARE SORTED BY PLAYER NAME**
+**ALL SKINS ARE SORTED BY PLAYER NAME** <br>
 If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 
 
