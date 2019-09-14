@@ -5,6 +5,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Bartek22830 v2.3](http://bit.ly/2kGnkHk)
 ![](https://osu.ppy.sh/ss/13839273/f63f)
 <br>
+# [chocomint/nathan on osu/Cookiezi (11-Sep-2019)](https://bit.ly/2Aw1lqw)
+![](https://i.imgur.com/dA6zzve.png)
+<br>
 # [Gerwi new new updated (my skin lul, added cuz why not)](https://gerwi.s-ul.eu/lLx5LdVj)
 ![](https://osu.ppy.sh/ss/13839062/5f9c)
 <br>
