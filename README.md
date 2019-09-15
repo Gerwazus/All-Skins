@@ -26,6 +26,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Paraqeet (Vaxei)](http://puu.sh/z0YMU/217e926ca9.osk)
 ![](https://i.imgur.com/QycB5tR.png)
 <br>
+# [Rafis (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
+![](https://osu.ppy.sh/ss/13839226/eaad)
+<br>
 # [RyuK (Delis Except It Is Varvalian)](https://mizaruyea.s-ul.eu/5lSwk7ay)
 ![](https://i.imgur.com/4jRAKzd.png)
 <br>
