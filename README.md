@@ -8,6 +8,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [chocomint/nathan on osu/Cookiezi (11-Sep-2019)](https://bit.ly/2Aw1lqw)
 ![](https://i.imgur.com/dA6zzve.png)
 <br>
+# [chocomint/nathan on osu/Cookiezi (5-Feb-2017)](https://circle-people.com/wp-content/Skins/Cookiezi/Cookiezi%2021.1%202017-02-03.osk)
+![](https://i.imgur.com/siwNThH.png)
+<br>
 # [Gerwi new new updated (my skin lul, added cuz why not)](https://gerwi.s-ul.eu/lLx5LdVj)
 ![](https://osu.ppy.sh/ss/13839062/5f9c)
 <br>
