@@ -44,6 +44,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Weabole (11-Sep-2019)](http://bit.ly/2FF02s7)
 ![](https://i.imgur.com/zie0rYM.png)
 <br>
+# [YungLing/BeasttrollMC (19-Sep-2019)](https://mega.nz/#!73xXXYBZ!iplvw4ch5YGrshMMfu2FloslWXNJypO4s2pXiWv_fJg)
+![](https://i.imgur.com/DL8xQIe.png)
+<br>
 # [Zeisen- (Mathi)](http://skins.osuck.net/index.php?newsid=605)
 ![](https://i.imgur.com/FoIXXPL.png)
 <br>
