@@ -2,6 +2,12 @@
 If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 <br>
+# [ASecretBox (Rafis - elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
+![](https://osu.ppy.sh/ss/13839226/eaad)
+<br>
+# [badeu](https://tetsui.s-ul.eu/t3yyAk3g2QugMs9O)
+![](https://i.imgur.com/IsMr3fQ.png)
+<br>
 # [Bartek22830 v2.3](http://bit.ly/2kGnkHk)
 ![](https://osu.ppy.sh/ss/13839273/f63f)
 <br>
@@ -11,11 +17,23 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [chocomint/nathan on osu/Cookiezi (5-Feb-2017)](https://circle-people.com/wp-content/Skins/Cookiezi/Cookiezi%2021.1%202017-02-03.osk)
 ![](https://i.imgur.com/siwNThH.png)
 <br>
+# [Gasha (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
+<br>
 # [Gerwi new new updated (my skin lul, added cuz why not)](https://gerwi.s-ul.eu/lLx5LdVj)
 ![](https://osu.ppy.sh/ss/13839062/5f9c)
 <br>
 # [jp0806 (Rafis - elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
+<br>
+# [Mastasz (Cookiezi)](https://gerwi2.s-ul.eu/wMpDZ4H4)
+![](https://i.imgur.com/4ScWmol.png)
+<br>
+# [Maxim Bogdan](https://tetsui.s-ul.eu/t3yyAk3g2QugMs9O)
+![](https://i.imgur.com/IsMr3fQ.png)
+<br>
+# [Micca (Vaxei-404)](https://gerwi2.s-ul.eu/whrTYola)
+![](https://i.imgur.com/rS9VSXm.png)
 <br>
 # [MoeYandere (Kamui)](http://puu.sh/Dt3QZ/17ed54f84c.osk)
 ![](https://osu.ppy.sh/ss/13839041/b64c)
@@ -29,14 +47,26 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Paraqeet (Vaxei)](http://puu.sh/z0YMU/217e926ca9.osk)
 ![](https://i.imgur.com/QycB5tR.png)
 <br>
+# [Ponytail (20-Sep-2019)](https://gerwi2.s-ul.eu/UpwA6ZsP)
+![](https://i.imgur.com/o9VRoFm.png)
+<br>
 # [Rafis (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
 # [RyuK (Delis Except It Is Varvalian)](https://mizaruyea.s-ul.eu/5lSwk7ay)
 ![](https://i.imgur.com/4jRAKzd.png)
 <br>
+# [Shiroha/Dumii (21-Sep-2019)](https://gerwi2.s-ul.eu/VQxa3GK9)
+![](https://i.imgur.com/nTAggvy.png)
+<br>
+# [Skydiver (Mathi)](http://skins.osuck.net/index.php?newsid=605)
+![](https://i.imgur.com/FoIXXPL.png)
+<br>
 # [Stoof (11-Sep-2019)](http://puu.sh/C673U/08dbb0dbe8.osk)
 ![](https://i.imgur.com/kekepQi.png)
+<br>
+# [Vamhi (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
 <br>
 # [Vaxei (Rafis)](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://osu.ppy.sh/ss/13422086/af38)
