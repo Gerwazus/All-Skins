@@ -20,6 +20,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Gasha (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
+# [Gayzmcgee (azer8#dawn)](http://www.mediafire.com/file/39953ocm4o7zgbe/%2523azer8dawn.osk/file)
+![](https://i.imgur.com/prwNbJn.png)
+<br>
 # [Gerwi new new updated (my skin lul, added cuz why not)](https://gerwi.s-ul.eu/lLx5LdVj)
 ![](https://osu.ppy.sh/ss/13839062/5f9c)
 <br>
@@ -52,6 +55,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [Rafis (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
+<br>
+# [Red_Pixel (27-Sep-2019)](https://puu.sh/DatIx.osk)
+![](https://i.imgur.com/PgpPdRN.png)
 <br>
 # [RyuK (Delis Except It Is Varvalian)](https://mizaruyea.s-ul.eu/5lSwk7ay)
 ![](https://i.imgur.com/4jRAKzd.png)
