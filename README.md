@@ -32,6 +32,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Mastasz (Cookiezi)](https://gerwi2.s-ul.eu/wMpDZ4H4)
 ![](https://i.imgur.com/4ScWmol.png)
 <br>
+# [Mathi](http://skins.osuck.net/index.php?newsid=605)
+![](https://i.imgur.com/FoIXXPL.png)
+<br>
 # [Maxim Bogdan](https://tetsui.s-ul.eu/t3yyAk3g2QugMs9O)
 ![](https://i.imgur.com/IsMr3fQ.png)
 <br>
@@ -73,6 +76,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [Vamhi (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
+<br>
+# [Vaxei (13-01-2018)](http://puu.sh/z0YMU/217e926ca9.osk)
+![](https://i.imgur.com/IeYmy2H.png)
 <br>
 # [Vaxei (Rafis)](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://osu.ppy.sh/ss/13422086/af38)
