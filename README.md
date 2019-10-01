@@ -2,6 +2,9 @@
 If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 <br>
+# [-Reuto- (Varvalian+trail)](https://puu.sh/CPqX5/ade6682fc9.osk)
+![](https://i.imgur.com/exblX5F.png)
+<br>
 # [Alumetri (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
