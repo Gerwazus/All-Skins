@@ -86,6 +86,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [WhiteCat (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
+# [WhiteCat (yaong+edit)](https://puu.sh/CeEi2/ffdaaa935a.osk)
+![](https://i.imgur.com/o4ItEQ2.png)
+<br>
 # [Weabole (11-Sep-2019)](http://bit.ly/2FF02s7)
 ![](https://i.imgur.com/zie0rYM.png)
 <br>
