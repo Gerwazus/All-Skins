@@ -83,6 +83,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Vaxei (Rafis)](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://osu.ppy.sh/ss/13422086/af38)
 <br>
+# [WhiteCat (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
+<br>
 # [Weabole (11-Sep-2019)](http://bit.ly/2FF02s7)
 ![](https://i.imgur.com/zie0rYM.png)
 <br>
