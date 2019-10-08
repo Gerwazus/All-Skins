@@ -32,6 +32,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Gerwi new new updated (my skin lul, added cuz why not)](https://gerwi.s-ul.eu/lLx5LdVj)
 ![](https://osu.ppy.sh/ss/13839062/5f9c)
 <br>
+# [idke 1.2](https://idke.s-ul.eu/gWWsQDGI)
+![](https://i.imgur.com/xA7SRxT.png)
+<br>
 # [InBefore (Rafis - elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
