@@ -17,11 +17,17 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Bartek22830 v2.3](http://bit.ly/2kGnkHk)
 ![](https://osu.ppy.sh/ss/13839273/f63f)
 <br>
+# [chocomint/nathan on osu/Cookiezi (11-Oct-2019)](https://shigeskinss.s-ul.eu/gEfiNoTv)
+![](https://i.imgur.com/26fxDgL.png)
+<br>
 # [chocomint/nathan on osu/Cookiezi (11-Sep-2019)](https://bit.ly/2Aw1lqw)
 ![](https://i.imgur.com/dA6zzve.png)
 <br>
 # [chocomint/nathan on osu/Cookiezi (5-Feb-2017)](https://circle-people.com/wp-content/Skins/Cookiezi/Cookiezi%2021.1%202017-02-03.osk)
 ![](https://i.imgur.com/siwNThH.png)
+<br>
+# [FGSky (Shigetora)](https://www.mediafire.com/file/lhdbtmh1h9gir4g/FGSky+Shigetora.osk/file)
+![](https://i.imgur.com/zivtKGN.png)
 <br>
 # [Gasha (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
