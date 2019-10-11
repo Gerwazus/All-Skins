@@ -59,6 +59,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Micca (Vaxei-404)](https://gerwi2.s-ul.eu/whrTYola)
 ![](https://i.imgur.com/rS9VSXm.png)
 <br>
+# [MightyDoc (Rafis-old)](https://mediafire.com/?8sj6qnbz34iaupp)
+![](https://i.imgur.com/0Brisjn.png)
+<br>
 # [MoeYandere (Kamui)](http://puu.sh/Dt3QZ/17ed54f84c.osk)
 ![](https://osu.ppy.sh/ss/13839041/b64c)
 <br>
@@ -91,6 +94,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [Stoof (11-Sep-2019)](http://puu.sh/C673U/08dbb0dbe8.osk)
 ![](https://i.imgur.com/kekepQi.png)
+<br>
+# [Vamhi (elohere)](https://puu.sh/DRd7s/073c76a608.osk)
+![](https://i.imgur.com/49O4mrh.png)
 <br>
 # [Vamhi (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
