@@ -47,6 +47,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [jp0806 (Rafis - elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
+# [lain (Rafis)](https://gerwi2.s-ul.eu/I8WswyCk)
+![](https://i.imgur.com/LnkN8Bl.png)
+<br>
 # [Mastasz (Cookiezi)](https://gerwi2.s-ul.eu/wMpDZ4H4)
 ![](https://i.imgur.com/4ScWmol.png)
 <br>
@@ -94,6 +97,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [Stoof (11-Sep-2019)](http://puu.sh/C673U/08dbb0dbe8.osk)
 ![](https://i.imgur.com/kekepQi.png)
+<br>
+# [ThePooN (13-Oct-2019)](https://imgcc.xyz/175o/jANUIr)
+![](https://i.imgur.com/d6J8OuC.png)
 <br>
 # [Vamhi (elohere)](https://puu.sh/DRd7s/073c76a608.osk)
 ![](https://i.imgur.com/49O4mrh.png)
