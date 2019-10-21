@@ -8,11 +8,17 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Alumetri (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
+# [Andros (Mathi-mix)](http://www.mediafire.com/file/88nua703515qk6y/Andros.osk/file)
+![](https://i.imgur.com/WpFAJCt.png)
+<br>
 # [ASecretBox (Rafis - elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
 # [badeu](https://tetsui.s-ul.eu/t3yyAk3g2QugMs9O)
 ![](https://i.imgur.com/IsMr3fQ.png)
+<br>
+# [BadGraph_ (404)](https://drive.google.com/file/d/1Kgdp9nN48y-4lyt4sbgo6p7LXAjLHFnf/view?usp=drivesdk)
+![](https://i.imgur.com/zqjD8ub.png)
 <br>
 # [Bartek22830 v2.3](http://bit.ly/2kGnkHk)
 ![](https://osu.ppy.sh/ss/13839273/f63f)
@@ -41,6 +47,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [idke 1.2](https://idke.s-ul.eu/gWWsQDGI)
 ![](https://i.imgur.com/xA7SRxT.png)
 <br>
+# [im bad (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
+<br>
 # [InBefore (Rafis - elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
@@ -68,6 +77,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [MoeYandere (Kamui)](http://puu.sh/Dt3QZ/17ed54f84c.osk)
 ![](https://osu.ppy.sh/ss/13839041/b64c)
 <br>
+# [MrBooM (21-Oct-2019)](https://mega.nz/#!SNBkVCgL!Nw6hBsK2BFGVOGJvVlTcu4Nwa-7B70DMS-ctatVjSrQ)
+![](https://camo.githubusercontent.com/1a7a634a50f2df9a0006a8ed020d56b96c02615c/68747470733a2f2f692e696d6775722e636f6d2f6e6f444c79566a2e706e67)
+<br>
 # [Nakano- (Chika)](http://bit.ly/2kDGHkk)
 ![](https://i.imgur.com/qC9MUEn.png)
 <br>
@@ -86,14 +98,23 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Red_Pixel (27-Sep-2019)](https://puu.sh/DatIx.osk)
 ![](https://i.imgur.com/PgpPdRN.png)
 <br>
+# [Reedkatt (21-Oct-2019)](https://puu.sh/D1Sf6/12dc634e76.osk)
+![](https://i.imgur.com/jDfR2D1.png)
+<br>
 # [RyuK (Delis Except It Is Varvalian)](https://mizaruyea.s-ul.eu/5lSwk7ay)
 ![](https://i.imgur.com/4jRAKzd.png)
 <br>
 # [Shiroha/Dumii (21-Sep-2019)](https://gerwi2.s-ul.eu/VQxa3GK9)
 ![](https://i.imgur.com/nTAggvy.png)
 <br>
+# [Shizuru- (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
+![](https://osu.ppy.sh/ss/13839226/eaad)
+<br>
 # [Skydiver (Mathi)](http://skins.osuck.net/index.php?newsid=605)
 ![](https://i.imgur.com/FoIXXPL.png)
+<br>
+# [Spare (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
 <br>
 # [Stoof (11-Sep-2019)](http://puu.sh/C673U/08dbb0dbe8.osk)
 ![](https://i.imgur.com/kekepQi.png)
