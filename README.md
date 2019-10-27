@@ -56,6 +56,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [jp0806 (Rafis - elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
+# [Karthy DT](https://gerwi2.s-ul.eu/pFtd1rJ8)
+![](https://i.imgur.com/2wP04Ms.png)
+<br>
 # [lain (Rafis)](https://gerwi2.s-ul.eu/I8WswyCk)
 ![](https://i.imgur.com/LnkN8Bl.png)
 <br>
