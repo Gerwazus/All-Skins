@@ -75,6 +75,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [jp0806 (Rafis - elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
+# [jpeg (Rafis)](https://gerwi2.s-ul.eu/eueRSmbp)
+![](https://i.imgur.com/m97K4z8.png)
+<br>
 # [Karthy DT](https://gerwi2.s-ul.eu/pFtd1rJ8)
 ![](https://i.imgur.com/2wP04Ms.png)
 <br>
@@ -114,6 +117,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Ponytail (20-Sep-2019)](https://gerwi2.s-ul.eu/UpwA6ZsP)
 ![](https://i.imgur.com/o9VRoFm.png)
 <br>
+# [Ralidea (elohere)](https://gerwi2.s-ul.eu/ZzDqU9V9)
+![](https://i.imgur.com/HBVCEgJ.png)
+<br>
 # [Rafis (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
@@ -143,6 +149,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [ThePooN (13-Oct-2019)](https://imgcc.xyz/175o/jANUIr)
 ![](https://i.imgur.com/d6J8OuC.png)
+<br>
+# [Unexpected (1-Nov-2019)](https://puu.sh/C7Qf6/c3266b8662.osk)
+![](https://i.imgur.com/7JIWhU8.png)
 <br>
 # [Vamhi (elohere)](https://puu.sh/DRd7s/073c76a608.osk)
 ![](https://i.imgur.com/49O4mrh.png)
