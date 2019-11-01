@@ -5,6 +5,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [-Reuto- (Varvalian+trail)](https://puu.sh/CPqX5/ade6682fc9.osk)
 ![](https://i.imgur.com/exblX5F.png)
 <br>
+# [-Reuto- (1-Nov-2019)](https://drive.google.com/drive/folders/10RFjhmKlXs29em_NB4gVZE5T9uDhEogT)
+![](https://i.imgur.com/1nFFoH1.jpg)
+<br>
 # [Alumetri (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
@@ -35,6 +38,12 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [FGSky (Shigetora)](https://www.mediafire.com/file/lhdbtmh1h9gir4g/FGSky+Shigetora.osk/file)
 ![](https://i.imgur.com/zivtKGN.png)
 <br>
+# [fieryrage](http://puu.sh/DzzXo/7d82d1b303.osk)
+![](https://i.imgur.com/uHXzGH6.jpg)
+<br>
+# [Flaven (Rafis)](https://joofixd.s-ul.eu/NyoJDqSp)
+![](https://osu.ppy.sh/ss/13422086/af38)
+<br>
 # [Gasha (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
@@ -44,8 +53,18 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Gerwi new new updated (my skin lul, added cuz why not)](https://gerwi.s-ul.eu/lLx5LdVj)
 ![](https://osu.ppy.sh/ss/13839062/5f9c)
 <br>
+# [Hide On Note (1-Nov-2019)](https://puu.sh/DN2iJ/3952de1fad.osk
+)
+![](https://i.imgur.com/XWLbvd6.png)
+<br>
 # [idke 1.2](https://idke.s-ul.eu/gWWsQDGI)
 ![](https://i.imgur.com/xA7SRxT.png)
+<br>
+# [im bad (1-Nov-2019)|PRIVATE SKIN, SORRY!|]
+![](https://i.imgur.com/2MqkQX3.png)
+<br>
+# [im bad (Kamui)](https://gerwi2.s-ul.eu/EIjDNkEi)
+![](https://i.imgur.com/VzYv5bo.png)
 <br>
 # [im bad (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
