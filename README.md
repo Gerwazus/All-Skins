@@ -162,6 +162,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Vaxei (13-01-2018)](http://puu.sh/z0YMU/217e926ca9.osk)
 ![](https://i.imgur.com/IeYmy2H.png)
 <br>
+# [Vaxei (09-2016)](https://gerwi2.s-ul.eu/bzM9alyX)
+![](https://i.imgur.com/AJ82LEE.png)
+<br>
 # [Vaxei (Rafis)](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://osu.ppy.sh/ss/13422086/af38)
 <br>
