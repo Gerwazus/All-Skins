@@ -53,8 +53,7 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Gerwi new new updated (my skin lul, added cuz why not)](https://gerwi.s-ul.eu/lLx5LdVj)
 ![](https://osu.ppy.sh/ss/13839062/5f9c)
 <br>
-# [Hide On Note (1-Nov-2019)](https://puu.sh/DN2iJ/3952de1fad.osk
-)
+# [Hide On Note (1-Nov-2019)](https://puu.sh/DN2iJ/3952de1fad.osk)
 ![](https://i.imgur.com/XWLbvd6.png)
 <br>
 # [idke 1.2](https://idke.s-ul.eu/gWWsQDGI)
