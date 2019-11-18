@@ -38,6 +38,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [chocomint/nathan on osu/Cookiezi (11-Sep-2019)](https://bit.ly/2Aw1lqw)
 ![](https://i.imgur.com/dA6zzve.png)
 <br>
+# [chocomint/nathan on osu/Cookiezi (04-2017+trail)](https://gerwi2.s-ul.eu/eRTCg72m)
+![](https://i.imgur.com/9F6kDdF.png)
+<br>
 # [chocomint/nathan on osu/Cookiezi (5-Feb-2017)](https://circle-people.com/wp-content/Skins/Cookiezi/Cookiezi%2021.1%202017-02-03.osk)
 ![](https://i.imgur.com/siwNThH.png)
 <br>
@@ -187,6 +190,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [Vaxei (Rafis)](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://osu.ppy.sh/ss/13422086/af38)
+<br>
+# [Vaxei+Yaong](https://gerwi2.s-ul.eu/fHAUM5EE)
+![](https://i.imgur.com/gOguD5x.png)
 <br>
 # [WhiteCat (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
