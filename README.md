@@ -146,14 +146,14 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Ponytail (20-Sep-2019)](https://gerwi2.s-ul.eu/UpwA6ZsP)
 ![](https://i.imgur.com/o9VRoFm.png)
 <br>
-# [Ralidea (elohere)](https://gerwi2.s-ul.eu/ZzDqU9V9)
-![](https://i.imgur.com/HBVCEgJ.png)
-<br>
 # [Rafis 2017](https://gerwi2.s-ul.eu/ztd5WF07)
 ![](https://i.imgur.com/Xntw25I.png)
 <br>
 # [Rafis (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
+<br>
+# [Ralidea (elohere)](https://gerwi2.s-ul.eu/ZzDqU9V9)
+![](https://i.imgur.com/HBVCEgJ.png)
 <br>
 # [Red_Pixel (27-Sep-2019)](https://puu.sh/DatIx.osk)
 ![](https://i.imgur.com/PgpPdRN.png)
