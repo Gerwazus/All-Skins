@@ -11,6 +11,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [-Reuto- (1-Nov-2019)](https://drive.google.com/drive/folders/10RFjhmKlXs29em_NB4gVZE5T9uDhEogT)
 ![](https://i.imgur.com/1nFFoH1.jpg)
 <br>
+# [a_Blue (Rafis)](https://gerwi2.s-ul.eu/1aSbThzJ)
+![](https://i.imgur.com/IMS7DKs.png)
+<br>
 # [Alumetri (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
@@ -59,6 +62,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [FlyingTuna (1.4)](https://mega.nz/#F!1nxSiQjS!SPbpxdtba7S1gZXeNVUzaw?g35lkaIQ)
 ![](https://i.imgur.com/GkaQls9.png)
 <br>
+# [Fobxx (WhiteCat-CK)](https://gerwi2.s-ul.eu/GNrMFZIT )
+![](https://i.imgur.com/zGkZ5lN.png)
+<br>
 # [Gasha (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
@@ -92,6 +98,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [jpeg (Rafis)](https://gerwi2.s-ul.eu/eueRSmbp)
 ![](https://i.imgur.com/m97K4z8.png)
 <br>
+# [jpeg (Rafis2)](https://joofixd.s-ul.eu/NyoJDqSp)
+![](https://osu.ppy.sh/ss/13422086/af38)
+<br>
 # [Karthy DT](https://gerwi2.s-ul.eu/pFtd1rJ8)
 ![](https://i.imgur.com/2wP04Ms.png)
 <br>
@@ -106,6 +115,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [Maxim Bogdan](https://tetsui.s-ul.eu/t3yyAk3g2QugMs9O)
 ![](https://i.imgur.com/IsMr3fQ.png)
+<br>
+# [Maxim Bogdan (Karthy)](https://puu.sh/EgO1M/b9f1bc0058.osk)
+![](https://i.imgur.com/z0lxfYn.png)
 <br>
 # [Merami (11-Nov-2019)](https://gerwi2.s-ul.eu/v4G9jyf1)
 ![](https://i.imgur.com/ok02kRn.png)
@@ -136,6 +148,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [Ralidea (elohere)](https://gerwi2.s-ul.eu/ZzDqU9V9)
 ![](https://i.imgur.com/HBVCEgJ.png)
+<br>
+# [Rafis 2017](https://gerwi2.s-ul.eu/ztd5WF07)
+![](https://i.imgur.com/Xntw25I.png)
 <br>
 # [Rafis (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
@@ -188,11 +203,17 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Vaxei (09-2016)](https://gerwi2.s-ul.eu/bzM9alyX)
 ![](https://i.imgur.com/AJ82LEE.png)
 <br>
+# [Vaxei (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
+![](https://osu.ppy.sh/ss/13839226/eaad)
+<br>
 # [Vaxei (Rafis)](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://osu.ppy.sh/ss/13422086/af38)
 <br>
 # [Vaxei+Yaong](https://gerwi2.s-ul.eu/fHAUM5EE)
 ![](https://i.imgur.com/gOguD5x.png)
+<br>
+# [WhiteCat (CK)](https://gerwi2.s-ul.eu/GNrMFZIT )
+![](https://i.imgur.com/zGkZ5lN.png)
 <br>
 # [WhiteCat (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
@@ -205,6 +226,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [WubWoofWolf (15-Nov-2019)](https://www.dropbox.com/s/vu7re52udeukeoz/WWW.osk?dl=0)
 ![](https://i.imgur.com/Wx1Onxj.png)
+<br>
+# [X i a (Shigetora)](https://gerwi2.s-ul.eu/1jwTShUD)
+![](https://i.imgur.com/upISB8Y.png)
 <br>
 # [YungLing/BeasttrollMC (19-Sep-2019)](https://mega.nz/#!73xXXYBZ!iplvw4ch5YGrshMMfu2FloslWXNJypO4s2pXiWv_fJg)
 ![](https://i.imgur.com/DL8xQIe.png)
