@@ -50,6 +50,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [dejiz (RafisxVarvalian)](https://mega.nz/#!R6ZTiYwA!-TXUHDk62SPT2MDqzSqDZ1zz_9WS9uGOh6e9bujGlrU)
 ![](https://i.imgur.com/YlH2YaE.png)
 <br>
+# [Emilia (23-Nov-2019)](https://gerwi2.s-ul.eu/Eg5jjPPP)
+![](https://i.imgur.com/VZ2smBl.png)
+<br>
 # [FGSky (Shigetora)](https://www.mediafire.com/file/lhdbtmh1h9gir4g/FGSky+Shigetora.osk/file)
 ![](https://i.imgur.com/zivtKGN.png)
 <br>
