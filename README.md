@@ -206,6 +206,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Vaxei (09-2016)](https://gerwi2.s-ul.eu/bzM9alyX)
 ![](https://i.imgur.com/AJ82LEE.png)
 <br>
+# [Vaxei (404)](https://joofixd.s-ul.eu/Ia93XGt5)
+![](https://camo.githubusercontent.com/7a0cf2b830c8f7813f190af0e00575ca13b4e5e0/68747470733a2f2f6f73752e7070792e73682f73732f31333438383938392f61373661)
+<br>
 # [Vaxei (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
