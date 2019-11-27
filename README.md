@@ -47,9 +47,6 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [chocomint/nathan on osu/Cookiezi (5-Feb-2017)](https://circle-people.com/wp-content/Skins/Cookiezi/Cookiezi%2021.1%202017-02-03.osk)
 ![](https://i.imgur.com/siwNThH.png)
 <br>
-# [chocomint/nathan on osu/Cookiezi (31-Sep-2017)](https://circle-people.com/wp-content/Skins/Cookiezi/Cookiezi%2021%202017-01-31.osk)
-![](https://i.imgur.com/siwNThH.png)
-<br>
 # [dejiz (RafisxVarvalian)](https://mega.nz/#!R6ZTiYwA!-TXUHDk62SPT2MDqzSqDZ1zz_9WS9uGOh6e9bujGlrU)
 ![](https://i.imgur.com/YlH2YaE.png)
 <br>
