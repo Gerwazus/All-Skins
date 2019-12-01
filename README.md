@@ -86,7 +86,7 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [idke 1.2](https://idke.s-ul.eu/gWWsQDGI)
 ![](https://i.imgur.com/xA7SRxT.png)
 <br>
-# [im bad (1-Nov-2019)|PRIVATE SKIN, SORRY!|]
+# im bad (1-Nov-2019)|PRIVATE SKIN, SORRY!|
 ![](https://i.imgur.com/2MqkQX3.png)
 <br>
 # [im bad (Kamui)](https://gerwi2.s-ul.eu/EIjDNkEi)
