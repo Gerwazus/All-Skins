@@ -53,6 +53,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Emilia (23-Nov-2019)](https://gerwi2.s-ul.eu/Eg5jjPPP)
 ![](https://i.imgur.com/VZ2smBl.png)
 <br>
+# [EZChamp (-GN)](https://gerwi2.s-ul.eu/DArTruX7)
+![](https://i.imgur.com/OLvRqjS.png)
+<br>
 # [FGSky (Shigetora)](https://www.mediafire.com/file/lhdbtmh1h9gir4g/FGSky+Shigetora.osk/file)
 ![](https://i.imgur.com/zivtKGN.png)
 <br>
@@ -103,6 +106,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [jpeg (Rafis2)](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://osu.ppy.sh/ss/13422086/af38)
+<br>
+# [JustALeaf](https://drive.google.com/file/d/158e5LFuf5eofgI_owMcmbVF2uG_yfNYJ/view?usp=sharing)
+![](https://i.imgur.com/1mwzUjo.png)
 <br>
 # [Karthy DT](https://gerwi2.s-ul.eu/pFtd1rJ8)
 ![](https://i.imgur.com/2wP04Ms.png)
