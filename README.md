@@ -110,6 +110,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [JustALeaf](https://drive.google.com/file/d/158e5LFuf5eofgI_owMcmbVF2uG_yfNYJ/view?usp=sharing)
 ![](https://i.imgur.com/1mwzUjo.png)
 <br>
+# [Karthy (v5.5)](https://gerwi2.s-ul.eu/wyDYedk8)
+![](https://i.imgur.com/JmMx0fN.png)
+<br>
 # [Karthy DT](https://gerwi2.s-ul.eu/pFtd1rJ8)
 ![](https://i.imgur.com/2wP04Ms.png)
 <br>
