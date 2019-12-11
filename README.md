@@ -5,6 +5,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [[ Velinda ] (elohere)](https://gerwi2.s-ul.eu/Qktq3IDX)
 ![](https://i.imgur.com/1WTZNWD.png)
 <br>
+# [-PloX (Rohulk 4.0)](http://www.mediafire.com/file/fawy6kdalz3jlpd/Rohulk_4.0%283%29.osk)
+![](https://i.imgur.com/uNXlAN7.png)
+<br>
 # [-Reuto- (Varvalian+trail)](https://puu.sh/CPqX5/ade6682fc9.osk)
 ![](https://i.imgur.com/exblX5F.png)
 <br>
@@ -20,6 +23,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Andros (Mathi-mix)](http://www.mediafire.com/file/88nua703515qk6y/Andros.osk/file)
 ![](https://i.imgur.com/WpFAJCt.png)
 <br>
+# [ASecretBox (Karthy+DT)](https://gerwi3.s-ul.eu/B9ygCLTS)
+![](https://i.imgur.com/LGfHo4V.png)
+<br>
 # [ASecretBox (Rafis - elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
@@ -31,6 +37,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [Bartek22830 v2.3](http://bit.ly/2kGnkHk)
 ![](https://osu.ppy.sh/ss/13839273/f63f)
+<br>
+# [Ceja (11-Dec-2019)](https://gerwi3.s-ul.eu/WTe9n7JQ)
+![](https://i.imgur.com/wiz5aa8.png)
 <br>
 # [Chitogod (11-Nov-2019)](https://circle-people.com/wp-content/Skins/Yaong/Yaong%202017-08-10.osk)
 ![](https://i.imgur.com/meuSHzy.png)
@@ -52,6 +61,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [dejiz (RafisxVarvalian)](https://mega.nz/#!R6ZTiYwA!-TXUHDk62SPT2MDqzSqDZ1zz_9WS9uGOh6e9bujGlrU)
 ![](https://i.imgur.com/YlH2YaE.png)
+<br>
+# [Dereban (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
+![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
 # [Emilia (23-Nov-2019)](https://gerwi2.s-ul.eu/Eg5jjPPP)
 ![](https://i.imgur.com/VZ2smBl.png)
@@ -77,11 +89,17 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Gasha (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
+# [Gasha (Vaxei+Rafis)](https://joofixd.s-ul.eu/NyoJDqSp)
+![](https://osu.ppy.sh/ss/13422086/af38)
+<br>
 # [Gayzmcgee (azer8#dawn)](http://www.mediafire.com/file/39953ocm4o7zgbe/%2523azer8dawn.osk/file)
 ![](https://i.imgur.com/prwNbJn.png)
 <br>
 # [Gerwi new new updated (my skin lul, added cuz why not)](https://gerwi.s-ul.eu/lLx5LdVj)
 ![](https://osu.ppy.sh/ss/13839062/5f9c)
+<br>
+# [gunadharika (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
 <br>
 # [Hide On Note (1-Nov-2019)](https://puu.sh/DN2iJ/3952de1fad.osk)
 ![](https://i.imgur.com/XWLbvd6.png)
@@ -116,6 +134,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Karthy (v5.5)](https://gerwi2.s-ul.eu/wyDYedk8)
 ![](https://i.imgur.com/JmMx0fN.png)
 <br>
+# [Karthy DT (11-Dec-2019)](https://puu.sh/EMGf7/357ac93098.osk)
+![](https://i.imgur.com/rwbjbfK.png)
+<br>
 # [Karthy DT](https://gerwi2.s-ul.eu/pFtd1rJ8)
 ![](https://i.imgur.com/2wP04Ms.png)
 <br>
@@ -148,6 +169,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [MrBooM (21-Oct-2019)](https://mega.nz/#!SNBkVCgL!Nw6hBsK2BFGVOGJvVlTcu4Nwa-7B70DMS-ctatVjSrQ)
 ![](https://camo.githubusercontent.com/1a7a634a50f2df9a0006a8ed020d56b96c02615c/68747470733a2f2f692e696d6775722e636f6d2f6e6f444c79566a2e706e67)
+<br>
+# [mReKk (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
+![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
 # [Nakano- (Chika)](http://bit.ly/2kDGHkk)
 ![](https://i.imgur.com/qC9MUEn.png)
@@ -205,6 +229,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [Unexpected (1-Nov-2019)](https://puu.sh/C7Qf6/c3266b8662.osk)
 ![](https://i.imgur.com/7JIWhU8.png)
+<br>
+# [uyghti (Rafis)](https://gerwi3.s-ul.eu/znXgQG8u)
+![](https://i.imgur.com/OLslPXp.png)
 <br>
 # [Vamhi (elohere)](https://puu.sh/DRd7s/073c76a608.osk)
 ![](https://i.imgur.com/49O4mrh.png)
