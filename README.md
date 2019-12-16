@@ -185,6 +185,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Ponytail (20-Sep-2019)](https://gerwi2.s-ul.eu/UpwA6ZsP)
 ![](https://i.imgur.com/o9VRoFm.png)
 <br>
+# [Rafis 2018](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
+<br>
 # [Rafis 2017](https://gerwi2.s-ul.eu/ztd5WF07)
 ![](https://i.imgur.com/Xntw25I.png)
 <br>
