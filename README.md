@@ -26,6 +26,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [ASecretBox (Karthy+DT)](https://gerwi3.s-ul.eu/B9ygCLTS)
 ![](https://i.imgur.com/LGfHo4V.png)
 <br>
+# [ASecretBox (Karthy+DT2)](https://gerwi3.s-ul.eu/L6obDCCj)
+![](https://i.imgur.com/HyJFX5c.png)
+<br>
 # [ASecretBox (Rafis - elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
@@ -83,8 +86,11 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [FlyingTuna (1.4)](https://mega.nz/#F!1nxSiQjS!SPbpxdtba7S1gZXeNVUzaw?g35lkaIQ)
 ![](https://i.imgur.com/GkaQls9.png)
 <br>
-# [Fobxx (WhiteCat-CK)](https://gerwi2.s-ul.eu/GNrMFZIT )
+# [Fobxx (WhiteCat-CK)](https://gerwi2.s-ul.eu/GNrMFZIT)
 ![](https://i.imgur.com/zGkZ5lN.png)
+<br>
+# [Freddie Benson (21-Dec-2019)](https://gerwi3.s-ul.eu/koOKYYu3)
+![](https://i.imgur.com/JpqKT59.png)
 <br>
 # [Gasha (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
@@ -128,8 +134,14 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [jpeg (Rafis2)](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://osu.ppy.sh/ss/13422086/af38)
 <br>
+# [jpeg (Rafis3)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
+<br>
 # [JustALeaf](https://drive.google.com/file/d/158e5LFuf5eofgI_owMcmbVF2uG_yfNYJ/view?usp=sharing)
 ![](https://i.imgur.com/1mwzUjo.png)
+<br>
+# [JustMan (21-Dec-2019)](https://gerwi3.s-ul.eu/mDpJyW5H)
+![](https://i.imgur.com/WqHkL7l.png)
 <br>
 # [Karthy (v5.5)](https://gerwi2.s-ul.eu/wyDYedk8)
 ![](https://i.imgur.com/JmMx0fN.png)
@@ -277,6 +289,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [X i a (Shigetora)](https://gerwi2.s-ul.eu/1jwTShUD)
 ![](https://i.imgur.com/upISB8Y.png)
+<br>
+# [YummyInMyTummy (21-Dec-2019)](https://gerwi3.s-ul.eu/DqEy7cXS)
+![](https://i.imgur.com/P5AWwjF.png)
 <br>
 # [YungLing/BeasttrollMC (19-Sep-2019)](https://mega.nz/#!73xXXYBZ!iplvw4ch5YGrshMMfu2FloslWXNJypO4s2pXiWv_fJg)
 ![](https://i.imgur.com/DL8xQIe.png)
