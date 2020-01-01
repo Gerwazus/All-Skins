@@ -92,6 +92,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [FlyingTuna (1.4)](https://mega.nz/#F!1nxSiQjS!SPbpxdtba7S1gZXeNVUzaw?g35lkaIQ)
 ![](https://i.imgur.com/GkaQls9.png)
 <br>
+# [FlyingTuna (Selyu DT v1.2)](https://gerwi3.s-ul.eu/IqT0cdQc)
+![](https://i.imgur.com/AeSp8i3.png)
+<br>
 # [Fobxx (WhiteCat-CK)](https://gerwi2.s-ul.eu/GNrMFZIT)
 ![](https://i.imgur.com/zGkZ5lN.png)
 <br>
