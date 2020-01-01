@@ -5,6 +5,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [[ Velinda ] (elohere)](https://gerwi2.s-ul.eu/Qktq3IDX)
 ![](https://i.imgur.com/1WTZNWD.png)
 <br>
+# [-Hebel (01.01.2020)](https://gerwi3.s-ul.eu/JuMeCKFB)
+![](https://i.imgur.com/IgXgBvH.png)
+<br>
 # [-PloX (Rohulk 4.0)](http://www.mediafire.com/file/fawy6kdalz3jlpd/Rohulk_4.0%283%29.osk)
 ![](https://i.imgur.com/uNXlAN7.png)
 <br>
@@ -16,6 +19,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [a_Blue (Rafis)](https://gerwi2.s-ul.eu/1aSbThzJ)
 ![](https://i.imgur.com/IMS7DKs.png)
+<br>
+# [a_Blue (Vaxei)](http://puu.sh/z0YMU/217e926ca9.osk)
+![](https://i.imgur.com/IeYmy2H.png)
 <br>
 # [Alumetri (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
@@ -167,6 +173,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Maxim Bogdan (Karthy)](https://puu.sh/EgO1M/b9f1bc0058.osk)
 ![](https://i.imgur.com/z0lxfYn.png)
 <br>
+# [Maxim Bogdan (Karthy+DT)](https://gerwi3.s-ul.eu/B9ygCLTS)
+![](https://i.imgur.com/LGfHo4V.png)
+<br>
 # [Merami (11-Nov-2019)](https://gerwi2.s-ul.eu/v4G9jyf1)
 ![](https://i.imgur.com/ok02kRn.png)
 <br>
@@ -184,6 +193,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [mReKk (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
+<br>
+# [mReKk (Karthy+DT)](https://gerwi3.s-ul.eu/B9ygCLTS)
+![](https://i.imgur.com/LGfHo4V.png)
 <br>
 # [Nakano- (Chika)](http://bit.ly/2kDGHkk)
 ![](https://i.imgur.com/qC9MUEn.png)
