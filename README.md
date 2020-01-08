@@ -167,6 +167,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [lain (Rafis)](https://gerwi2.s-ul.eu/I8WswyCk)
 ![](https://i.imgur.com/LnkN8Bl.png)
 <br>
+# [Maiaz (fieryrage)](https://gerwi3.s-ul.eu/JhZHOOLC)
+![](https://i.imgur.com/ju3fyVW.png)
+<br>
 # [Mastasz (Cookiezi)](https://gerwi2.s-ul.eu/wMpDZ4H4)
 ![](https://i.imgur.com/4ScWmol.png)
 <br>
@@ -307,6 +310,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [WubWoofWolf (15-Nov-2019)](https://www.dropbox.com/s/vu7re52udeukeoz/WWW.osk?dl=0)
 ![](https://i.imgur.com/Wx1Onxj.png)
+<br>
+# [WubWoofWolf 2.0 HDHR](https://gerwi3.s-ul.eu/OoykFvjp)
+![](https://i.imgur.com/v7FvcWT.png)
 <br>
 # [X i a (Shigetora)](https://gerwi2.s-ul.eu/1jwTShUD)
 ![](https://i.imgur.com/upISB8Y.png)
