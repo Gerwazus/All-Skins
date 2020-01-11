@@ -86,6 +86,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [fieryrage](http://puu.sh/DzzXo/7d82d1b303.osk)
 ![](https://i.imgur.com/uHXzGH6.jpg)
 <br>
+# [firebat92 (1918)](https://gerwi3.s-ul.eu/SCsMNS5p)
+![](https://i.imgur.com/Q1Aftjs.png)
+<br>
 # [Flaven (Rafis)](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://osu.ppy.sh/ss/13422086/af38)
 <br>
@@ -125,6 +128,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [idke 1.2](https://idke.s-ul.eu/gWWsQDGI)
 ![](https://i.imgur.com/xA7SRxT.png)
 <br>
+# [im a fancy lad (fieryrage)](http://puu.sh/DzzXo/7d82d1b303.osk)
+![](https://i.imgur.com/uHXzGH6.jpg)
+<br>
 # im bad (1-Nov-2019)|PRIVATE SKIN, SORRY!|
 ![](https://i.imgur.com/2MqkQX3.png)
 <br>
@@ -154,6 +160,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [JustMan (21-Dec-2019)](https://gerwi3.s-ul.eu/mDpJyW5H)
 ![](https://i.imgur.com/WqHkL7l.png)
+<br>
+# [kablaze (11-Jan-2020)](https://gerwi3.s-ul.eu/uYMKXosm)
+![](https://i.imgur.com/tFIrkrK.png)
 <br>
 # [Karthy (v5.5)](https://gerwi2.s-ul.eu/wyDYedk8)
 ![](https://i.imgur.com/JmMx0fN.png)
