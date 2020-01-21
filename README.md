@@ -1,5 +1,5 @@
 **ALL SKINS ARE SORTED BY PLAYER NAME** ⬅️ *Keep in mind that* <br>
-If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
+If something is missing/broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 <br>
 # [[ Velinda ] (elohere)](https://gerwi2.s-ul.eu/Qktq3IDX)
@@ -67,6 +67,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [chocomint/nathan on osu/Cookiezi (20-Apr-2016)](https://gerwi2.s-ul.eu/hJ9eOWK9)
 ![](https://i.imgur.com/fb087pO.png)
+<br>
+# [ChocoPafe (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
 <br>
 # [dejiz (RafisxVarvalian)](https://mega.nz/#!R6ZTiYwA!-TXUHDk62SPT2MDqzSqDZ1zz_9WS9uGOh6e9bujGlrU)
 ![](https://i.imgur.com/YlH2YaE.png)
@@ -200,6 +203,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Micca (Vaxei-404)](https://gerwi2.s-ul.eu/whrTYola)
 ![](https://i.imgur.com/rS9VSXm.png)
 <br>
+# [MightyDoc (elohere)](https://gerwi3.s-ul.eu/bXkO1W28)
+![](https://i.imgur.com/1d7ExiA.png)
+<br>
 # [MightyDoc (Rafis-old)](https://mediafire.com/?8sj6qnbz34iaupp)
 ![](https://i.imgur.com/0Brisjn.png)
 <br>
@@ -215,6 +221,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [mReKk (Karthy+DT)](https://gerwi3.s-ul.eu/B9ygCLTS)
 ![](https://i.imgur.com/LGfHo4V.png)
 <br>
+# [mReKk (Karthy+DT2)](https://puu.sh/EMGf7/357ac93098.osk)
+![](https://i.imgur.com/rwbjbfK.png)
+<br>
 # [Nakano- (Chika)](http://bit.ly/2kDGHkk)
 ![](https://i.imgur.com/qC9MUEn.png)
 <br>
@@ -223,6 +232,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [Paraqeet (Vaxei)](http://puu.sh/z0YMU/217e926ca9.osk)
 ![](https://i.imgur.com/QycB5tR.png)
+<br>
+# [okinamo (Jan-2020)](https://gerwi3.s-ul.eu/lJLvQJYJ)
+![](https://i.imgur.com/rmY2t8Y.png)
 <br>
 # [Ponytail (20-Sep-2019)](https://gerwi2.s-ul.eu/UpwA6ZsP)
 ![](https://i.imgur.com/o9VRoFm.png)
@@ -250,6 +262,9 @@ If something is broke please PM me on Discord: ツ Gerwazus ツ#5604
 <br>
 # [RyuK (Delis Except It Is Varvalian)](https://mizaruyea.s-ul.eu/5lSwk7ay)
 ![](https://i.imgur.com/4jRAKzd.png)
+<br>
+# [RyuK (Vaxei ver.)](https://gerwi3.s-ul.eu/OUBeBmMn)
+![](https://i.imgur.com/FfVXbx6.png)
 <br>
 # [shinji (11-Nov-2019)](https://shinji.s-ul.eu/vRsGVXAj)
 ![](https://i.imgur.com/iudY4M4.png)
