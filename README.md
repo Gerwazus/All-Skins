@@ -71,6 +71,9 @@ If something is missing/broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [ChocoPafe (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
+# [DanyL (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
+<br>
 # [dejiz (RafisxVarvalian)](https://mega.nz/#!R6ZTiYwA!-TXUHDk62SPT2MDqzSqDZ1zz_9WS9uGOh6e9bujGlrU)
 ![](https://i.imgur.com/YlH2YaE.png)
 <br>
