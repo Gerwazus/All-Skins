@@ -179,6 +179,9 @@ If something is missing/broke please PM me on Discord: ツ Gerwazus ツ#5604
 # [Karthy DT](https://gerwi2.s-ul.eu/pFtd1rJ8)
 ![](https://i.imgur.com/2wP04Ms.png)
 <br>
+# [Kim Dahyun (Jan-2020)](https://gerwi3.s-ul.eu/qruAgU2Q)
+![](https://i.imgur.com/15TKn9g.png)
+<br>
 # [lain (Rafis)](https://gerwi2.s-ul.eu/I8WswyCk)
 ![](https://i.imgur.com/LnkN8Bl.png)
 <br>
