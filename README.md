@@ -1,9 +1,12 @@
 **ALL SKINS ARE SORTED BY PLAYER NAME** ⬅️ *Keep in mind that* <br>
-If something is missing/broke please PM me on Discord: ツ Gerwazus ツ#5604
+If something is missing/broke please PM me on Discord: Gerwazus#5604
 <br>
 <br>
 # [[ Velinda ] (elohere)](https://gerwi2.s-ul.eu/Qktq3IDX)
 ![](https://i.imgur.com/1WTZNWD.png)
+<br>
+# [-DuckLeader- (Feb-2020)](https://gerwi3.s-ul.eu/kTcpNnRl)
+![](https://i.imgur.com/ZHcLjKo.png)
 <br>
 # [-Hebel (01.01.2020)](https://gerwi3.s-ul.eu/JuMeCKFB)
 ![](https://i.imgur.com/IgXgBvH.png)
