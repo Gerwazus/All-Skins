@@ -350,6 +350,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [Vaxei+Yaong](https://gerwi2.s-ul.eu/fHAUM5EE)
 ![](https://i.imgur.com/gOguD5x.png)
 <br>
+# [Weabole (11-Sep-2019)](http://bit.ly/2FF02s7)
+![](https://i.imgur.com/zie0rYM.png)
+<br>
 # [WhiteCat (CK)](https://gerwi2.s-ul.eu/GNrMFZIT )
 ![](https://i.imgur.com/zGkZ5lN.png)
 <br>
@@ -359,8 +362,8 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [WhiteCat (yaong+edit)](https://puu.sh/CeEi2/ffdaaa935a.osk)
 ![](https://i.imgur.com/o4ItEQ2.png)
 <br>
-# [Weabole (11-Sep-2019)](http://bit.ly/2FF02s7)
-![](https://i.imgur.com/zie0rYM.png)
+# [Woey (Feb-2020)](https://gerwi3.s-ul.eu/cu6XgScI)
+![](https://i.imgur.com/vZOtjpb.png)
 <br>
 # [WubWoofWolf (15-Nov-2019)](https://www.dropbox.com/s/vu7re52udeukeoz/WWW.osk?dl=0)
 ![](https://i.imgur.com/Wx1Onxj.png)
@@ -370,6 +373,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 <br>
 # [X i a (Shigetora)](https://gerwi2.s-ul.eu/1jwTShUD)
 ![](https://i.imgur.com/upISB8Y.png)
+<br>
+# [YokesPai (Feb-2020)](https://cdn.discordapp.com/attachments/510553668475551755/675075156565164051/YokesPai.osk)
+![](https://i.imgur.com/IVC0ANI.png)
 <br>
 # [YummyInMyTummy (21-Dec-2019)](https://gerwi3.s-ul.eu/DqEy7cXS)
 ![](https://i.imgur.com/P5AWwjF.png)
