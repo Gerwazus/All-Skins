@@ -46,7 +46,7 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 <br>
 # [azr8 (Feb-2020](https://skins.osuck.net/index.php?newsid=1104)
 ![](https://i.imgur.com/Ym2PqZk.png)
-<r>
+<br>
 # [badeu](https://tetsui.s-ul.eu/t3yyAk3g2QugMs9O)
 ![](https://i.imgur.com/IsMr3fQ.png)
 <br>
