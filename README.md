@@ -26,6 +26,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [a_Blue (Vaxei)](http://puu.sh/z0YMU/217e926ca9.osk)
 ![](https://i.imgur.com/IeYmy2H.png)
 <br>
+# [Akolibed (Vaxei)](http://puu.sh/z0YMU/217e926ca9.osk)
+![](https://i.imgur.com/IeYmy2H.png)
+<br>
 # [Alumetri (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
@@ -41,6 +44,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [ASecretBox (Rafis - elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
+# [azr8 (Feb-2020](https://skins.osuck.net/index.php?newsid=1104)
+![](https://i.imgur.com/Ym2PqZk.png)
+<r>
 # [badeu](https://tetsui.s-ul.eu/t3yyAk3g2QugMs9O)
 ![](https://i.imgur.com/IsMr3fQ.png)
 <br>
@@ -205,6 +211,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 <br>
 # [Mathi](http://skins.osuck.net/index.php?newsid=605)
 ![](https://i.imgur.com/FoIXXPL.png)
+<br>
+# [Mathi (elohere)](https://gerwi2.s-ul.eu/ZzDqU9V9)
+![](https://i.imgur.com/HBVCEgJ.png)
 <br>
 # [Maxim Bogdan](https://tetsui.s-ul.eu/t3yyAk3g2QugMs9O)
 ![](https://i.imgur.com/IsMr3fQ.png)
