@@ -257,8 +257,8 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # morgn (Feb-2020)|PRIVATE SKIN, SORRY!|
 ![](https://i.imgur.com/eRrUhZd.jpg)
 <br>
-# [MouseEasy DT](https://gerwi3.s-ul.eu/G51e8xcc)
-![](https://gerwi3.s-ul.eu/y4RYYcC7)
+# [MouseEasy DT](https://gerwi3.s-ul.eu/y4RYYcC7)
+![](https://i.imgur.com/NiqZt8O.png)
 <br>
 # [MrBooM (21-Oct-2019)](https://mega.nz/#!SNBkVCgL!Nw6hBsK2BFGVOGJvVlTcu4Nwa-7B70DMS-ctatVjSrQ)
 ![](https://camo.githubusercontent.com/1a7a634a50f2df9a0006a8ed020d56b96c02615c/68747470733a2f2f692e696d6775722e636f6d2f6e6f444c79566a2e706e67)
