@@ -252,10 +252,10 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 ![](https://osu.ppy.sh/ss/13839041/b64c)
 <br>
 # [morgn (Jan-2020)](https://gerwi3.s-ul.eu/G51e8xcc)
-![](https://i.imgur.com/eRrUhZd.jpg)
+![](https://i.imgur.com/2MqkQX3.png)
 <br>
 # morgn (Feb-2020)|PRIVATE SKIN, SORRY!|
-![](https://i.imgur.com/2MqkQX3.png)
+![](https://i.imgur.com/eRrUhZd.jpg)
 <br>
 # [MouseEasy DT](https://gerwi3.s-ul.eu/G51e8xcc)
 ![](https://gerwi3.s-ul.eu/y4RYYcC7)
