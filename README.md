@@ -35,6 +35,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [Andros (Mathi-mix)](http://www.mediafire.com/file/88nua703515qk6y/Andros.osk/file)
 ![](https://i.imgur.com/WpFAJCt.png)
 <br>
+# [ASecretBox (Feb-2020)](https://mega.nz/#!gSphHKTD!FeDNxc5LHZl5qr-TAA2eGzWzZzfl315xea5v7WapBUg)
+![](https://i.imgur.com/3vN7Hw5.png)
+<br>
 # [ASecretBox (Karthy+DT)](https://gerwi3.s-ul.eu/B9ygCLTS)
 ![](https://i.imgur.com/LGfHo4V.png)
 <br>
@@ -71,6 +74,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [Chitogod (11-Nov-2019)](https://circle-people.com/wp-content/Skins/Yaong/Yaong%202017-08-10.osk)
 ![](https://i.imgur.com/meuSHzy.png)
 <br>
+# [Chitogod (Feb-2020)](https://mega.nz/#!oPwxVbyB!h3q2tVbhumpQux6RGOZwYDlaUDOJLupYmjKsna1-Y5o)
+![](https://i.imgur.com/w6SHDl7.png)
+<br>
 # [chocomint/nathan on osu/Cookiezi (11-Oct-2019)](https://shigeskinss.s-ul.eu/gEfiNoTv)
 ![](https://i.imgur.com/26fxDgL.png)
 <br>
@@ -97,6 +103,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 <br>
 # [Dereban (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
+<br>
+# [Dereban (RyuK/Rafis)](https://mega.nz/#!QTwlhbyA!rUc-i_PdyNNJmF8I8_o0rOQ87r1ZgxX8i5fzxAxqkgE)
+![](https://i.imgur.com/OVy47gw.png)
 <br>
 # [Detze (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
@@ -272,6 +281,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [mReKk (Karthy+DT2)](https://puu.sh/EMGf7/357ac93098.osk)
 ![](https://i.imgur.com/rwbjbfK.png)
 <br>
+# [mReKk (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
+<br>
 # [Nakano- (Chika)](http://bit.ly/2kDGHkk)
 ![](https://i.imgur.com/qC9MUEn.png)
 <br>
@@ -311,6 +323,12 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [Reedkatt (21-Oct-2019)](https://puu.sh/D1Sf6/12dc634e76.osk)
 ![](https://i.imgur.com/jDfR2D1.png)
 <br>
+# [Rektygon (Feb-2020)](https://mega.nz/#!9L51TJIb!aZPHccRXLgLTvfao2_XJi3Y1MiHK0-D_fthxecj8K6s)
+![](https://i.imgur.com/BzK6yA5.png)
+<br>
+# [Rhythm blue (idke 1.2)](https://joofixd.s-ul.eu/NyoJDqSp)
+![](https://osu.ppy.sh/ss/13422086/af38)
+<br>
 # [rip fc (Rafis)](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://osu.ppy.sh/ss/13422086/af38)
 <br>
@@ -319,6 +337,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 <br>
 # [RyuK (Delis Except It Is Varvalian)](https://mizaruyea.s-ul.eu/5lSwk7ay)
 ![](https://i.imgur.com/4jRAKzd.png)
+<br>
+# [RyuK (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
 <br>
 # [RyuK (Vaxei ver.)](https://gerwi3.s-ul.eu/OUBeBmMn)
 ![](https://i.imgur.com/FfVXbx6.png)
