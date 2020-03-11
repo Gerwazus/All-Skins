@@ -119,6 +119,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [FGSky (Shigetora)](https://www.mediafire.com/file/lhdbtmh1h9gir4g/FGSky+Shigetora.osk/file)
 ![](https://i.imgur.com/zivtKGN.png)
 <br>
+# [FGSky (Vaxei)](https://gerwi.s-ul.eu/N9P0Dsst)
+![](https://cdn.discordapp.com/attachments/660554455808475149/687199468772524048/unknown.png)
+<br>
 # [fieryrage](http://puu.sh/DzzXo/7d82d1b303.osk)
 ![](https://i.imgur.com/uHXzGH6.jpg)
 <br>
@@ -212,6 +215,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [Karthy DT](https://gerwi2.s-ul.eu/pFtd1rJ8)
 ![](https://i.imgur.com/2wP04Ms.png)
 <br>
+# [Kelathis (Nalian)](https://gerwi.s-ul.eu/sZmbkAYO)
+![](https://cdn.discordapp.com/attachments/660554455808475149/687198258459574286/unknown.png)
+<br>
 # [Kim Dahyun (Jan-2020)](https://gerwi3.s-ul.eu/qruAgU2Q)
 ![](https://i.imgur.com/15TKn9g.png)
 <br>
@@ -290,6 +296,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [Nameless Player (31-Jan-2019)](https://b.catgirlsare.sexy/N5S2.zip)
 ![](https://i.imgur.com/Zew1Ol2.png)
 <br>
+# [Neox (Rafis+RyuK+Vaxei)](https://gerwi3.s-ul.eu/OUBeBmMn)
+![](https://i.imgur.com/FfVXbx6.png)
+<br>
 # [okinamo (Jan-2020)](https://gerwi3.s-ul.eu/lJLvQJYJ)
 ![](https://i.imgur.com/rmY2t8Y.png)
 <br>
@@ -341,6 +350,12 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [RyuK (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
+# [RyuK (Rafis but Cluck)](https://www.dropbox.com/s/x6uoux9vmr2pn0i/-%20Rafis%20but%20Clack-.osk?dl=0)
+![](https://cdn.discordapp.com/attachments/660554455808475149/687197401869844481/unknown.png)
+<br>
+# [RyuK (Rafis+Toy)](https://www.dropbox.com/s/dn70wp6svjix7md/-%20Ryuk%20Rafis%20Toy%20-.osk?dl=0)
+![](https://cdn.discordapp.com/attachments/660554455808475149/687196436688928801/unknown.png)
+<br>
 # [RyuK (Vaxei ver.)](https://gerwi3.s-ul.eu/OUBeBmMn)
 ![](https://i.imgur.com/FfVXbx6.png)
 <br>
@@ -362,8 +377,17 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [Stoof (11-Sep-2019)](http://puu.sh/C673U/08dbb0dbe8.osk)
 ![](https://i.imgur.com/kekepQi.png)
 <br>
+# [Theodore (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
+![](https://osu.ppy.sh/ss/13839226/eaad)
+<br>
+# [Tj7223 (Varvalian)](https://skins.osuck.net/index.php?newsid=485)
+![](https://cdn.discordapp.com/attachments/660554455808475149/687195537547591680/unknown.png)
+<br>
 # [ThePooN (13-Oct-2019)](https://imgcc.xyz/175o/jANUIr)
 ![](https://i.imgur.com/d6J8OuC.png)
+<br>
+# [Umbre (Rohulk)](https://skins.osuck.net/index.php?newsid=801)
+![](https://cdn.discordapp.com/attachments/660554455808475149/687194357472034827/unknown.png)
 <br>
 # [Unexpected (1-Nov-2019)](https://puu.sh/C7Qf6/c3266b8662.osk)
 ![](https://i.imgur.com/7JIWhU8.png)
