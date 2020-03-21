@@ -8,6 +8,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [-DuckLeader- (Feb-2020)](https://gerwi3.s-ul.eu/kTcpNnRl)
 ![](https://i.imgur.com/ZHcLjKo.png)
 <br>
+# [-DuckLeader- (Mar-2020)](https://gerwi.s-ul.eu/Cl4eswvD)
+![](https://i.imgur.com/DykyydZ.png)
+<br>
 # [-Hebel- (01.01.2020)](https://gerwi3.s-ul.eu/JuMeCKFB)
 ![](https://i.imgur.com/IgXgBvH.png)
 <br>
@@ -61,6 +64,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 <br>
 # [BadGraph_ (404)](https://drive.google.com/file/d/1Kgdp9nN48y-4lyt4sbgo6p7LXAjLHFnf/view?usp=drivesdk)
 ![](https://i.imgur.com/zqjD8ub.png)
+<br>
+# [BadGraph_ (Mar-2020)](https://gerwi.s-ul.eu/divfY6M7)
+![](https://i.imgur.com/BR4ujWT.png)
 <br>
 # [Bartek22830 v2.3](http://bit.ly/2kGnkHk)
 ![](https://osu.ppy.sh/ss/13839273/f63f)
@@ -148,6 +154,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 <br>
 # [Freddie Benson (Feb-2020)](https://skins.osuck.net/index.php?newsid=468)
 ![](https://i.imgur.com/nOe7e8r.png)
+<br>
+# [Freddie Benson (Rafis)](https://gerwi.s-ul.eu/pLThfVUy)
+![](https://i.imgur.com/PSE11Mv.png)
 <br>
 # [Gasha (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
