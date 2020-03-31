@@ -344,8 +344,8 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [Rektygon (Feb-2020)](https://mega.nz/#!9L51TJIb!aZPHccRXLgLTvfao2_XJi3Y1MiHK0-D_fthxecj8K6s)
 ![](https://i.imgur.com/BzK6yA5.png)
 <br>
-# [Rhythm blue (idke 1.2)](https://joofixd.s-ul.eu/NyoJDqSp)
-![](https://osu.ppy.sh/ss/13422086/af38)
+# [Rhythm blue (idke 1.2)](https://idke.s-ul.eu/gWWsQDGI)
+![](https://i.imgur.com/xA7SRxT.png)
 <br>
 # [rip fc (Rafis)](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://osu.ppy.sh/ss/13422086/af38)
