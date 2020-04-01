@@ -194,6 +194,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [Gerwi new new updated (my skin lul, added cuz why not)](https://gerwi.s-ul.eu/lLx5LdVj)
 ![](https://osu.ppy.sh/ss/13839062/5f9c)
 <br>
+# [Gerwi new new updated (Apr-2020)](https://mega.nz/#!VKom0SDS!ZPLzYbarwJskl55a09koG4xywBAn9zSz46z9vDraU-o)
+![](https://i.imgur.com/qV57Dqo.png)
+<br>
 # [gunadharika (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
@@ -253,6 +256,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 <br>
 # [Kim Dahyun (Jan-2020)](https://gerwi3.s-ul.eu/qruAgU2Q)
 ![](https://i.imgur.com/15TKn9g.png)
+<br>
+# [KoaLeahq (Apr-2020)](https://mega.nz/#!UeZHhQQA!LCVHjJkYGwNhm7TjtFvbA4iNsLLCXT2FdK9OhH87glE)
+![](https://i.imgur.com/LfFSwOw.png)
 <br>
 # [lain (Rafis)](https://gerwi2.s-ul.eu/I8WswyCk)
 ![](https://i.imgur.com/LnkN8Bl.png)
