@@ -14,6 +14,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [-Hebel- (01.01.2020)](https://gerwi3.s-ul.eu/JuMeCKFB)
 ![](https://i.imgur.com/IgXgBvH.png)
 <br>
+# [-Machine- (FlyingTuna)](https://mega.nz/#F!1nxSiQjS!SPbpxdtba7S1gZXeNVUzaw?g35lkaIQ)
+![](https://i.imgur.com/GkaQls9.png)
+<br>
 # [-PloX (Rohulk 4.0)](http://www.mediafire.com/file/fawy6kdalz3jlpd/Rohulk_4.0%283%29.osk)
 ![](https://i.imgur.com/uNXlAN7.png)
 <br>
@@ -35,8 +38,20 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [Alumetri (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
+# [Alumetri (Rafis-Refreshed)](https://mega.nz/#!gUV30CBD!Vyv2XiF7nkO1AaeONd0vMqYr0TGpfr7vvNdQI1kH9qc)
+![](https://i.imgur.com/wsRi368.png)
+<br>
+# [Alusim (Rafis)](https://mega.nz/#!ESYzCa5S!2qHjnKP5i8W5_R5brz-Hdmss7miByKu3X0BpVwOYrBo)
+![](https://i.imgur.com/fKXq2vD.png)
+<br>
 # [Andros (Mathi-mix)](http://www.mediafire.com/file/88nua703515qk6y/Andros.osk/file)
 ![](https://i.imgur.com/WpFAJCt.png)
+<br>
+# [Andros (Varvalian)](https://skins.osuck.net/index.php?newsid=485)
+![](https://cdn.discordapp.com/attachments/660554455808475149/687195537547591680/unknown.png)
+<br>
+# [Aricin (azer8#dawn)](http://www.mediafire.com/file/39953ocm4o7zgbe/%2523azer8dawn.osk/file)
+![](https://i.imgur.com/prwNbJn.png)
 <br>
 # [ASecretBox (Feb-2020)](https://mega.nz/#!gSphHKTD!FeDNxc5LHZl5qr-TAA2eGzWzZzfl315xea5v7WapBUg)
 ![](https://i.imgur.com/3vN7Hw5.png)
@@ -116,6 +131,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [Detze (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
+# [Doki](https://mega.nz/#!4TJFiSxJ!DSIKyILCXPM3eDI4b8O8wnRV18GsQfL3liw1tqatWco)
+![](https://i.imgur.com/EecP5hX.png)
+<br>
 # [Emilia (23-Nov-2019)](https://gerwi2.s-ul.eu/Eg5jjPPP)
 ![](https://i.imgur.com/VZ2smBl.png)
 <br>
@@ -155,8 +173,14 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [Freddie Benson (Feb-2020)](https://skins.osuck.net/index.php?newsid=468)
 ![](https://i.imgur.com/nOe7e8r.png)
 <br>
+# [Freddie Benson (Apr-2020)](https://mega.nz/#!lLgzFZSb!-sMcfFNJBu0a19rY74obWCRvgquvM2Th1IF5rCYbpb0)
+![](https://i.imgur.com/LZXZOpL.png)
+<br>
 # [Freddie Benson (Rafis)](https://gerwi.s-ul.eu/pLThfVUy)
 ![](https://i.imgur.com/PSE11Mv.png)
+<br>
+# [Frosiito (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
+![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
 # [Gasha (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
@@ -259,6 +283,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 <br>
 # [mcy4 (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
+<br>
+# [Merami (Apr-2019)](https://mega.nz/#!RPQygYIR!VEAcwbvau1DVzzRW3kArIkaH_gxXWFYwVzE5hK-Fkuo)
+![](https://i.imgur.com/koYJmag.png)
 <br>
 # [Merami (11-Nov-2019)](https://gerwi2.s-ul.eu/v4G9jyf1)
 ![](https://i.imgur.com/ok02kRn.png)
