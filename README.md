@@ -11,6 +11,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 # [-DuckLeader- (Mar-2020)](https://gerwi.s-ul.eu/Cl4eswvD)
 ![](https://i.imgur.com/DykyydZ.png)
 <br>
+# [-GN (Apr-2020)](https://mega.nz/file/wOBylazI#dNDgaofE85OdCbe_o0LXovibLPK77mjOuGNzdJPgjgM)
+![](https://i.imgur.com/OPWXfml.png)
+<br>
 # [-Hebel- (01.01.2020)](https://gerwi3.s-ul.eu/JuMeCKFB)
 ![](https://i.imgur.com/IgXgBvH.png)
 <br>
@@ -148,6 +151,9 @@ If something is missing/broke please PM me on Discord: Gerwazus#5604
 <br>
 # [fieryrage](http://puu.sh/DzzXo/7d82d1b303.osk)
 ![](https://i.imgur.com/uHXzGH6.jpg)
+<br>
+# [filsdelama 2018](https://mega.nz/file/cSYm2aKQ#0c-8GE-XGMgxNtxzCqK13tRcylySor-s3Qxu8GwMzmY)
+![](https://i.imgur.com/r3uRKpL.png)
 <br>
 # [firebat92 (1918)](https://gerwi3.s-ul.eu/SCsMNS5p)
 ![](https://i.imgur.com/Q1Aftjs.png)
