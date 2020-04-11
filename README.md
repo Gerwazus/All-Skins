@@ -1,5 +1,5 @@
 **ALL SKINS ARE SORTED BY PLAYER NAME** ⬅️ *Keep in mind that* <br>
-If something is missing/broke please PM me on Discord: Gerwazus#5604
+If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV9
 <br>
 <br>
 # [[ Velinda ] (elohere)](https://gerwi2.s-ul.eu/Qktq3IDX)
