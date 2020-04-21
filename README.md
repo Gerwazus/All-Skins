@@ -359,6 +359,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [obtio (Rafis)](https://gerwi2.s-ul.eu/1aSbThzJ)
 ![](https://i.imgur.com/IMS7DKs.png)
 <br>
+# [obtio (Rafis2)](https://mega.nz/file/sDh1DDgT#TA3OKIEK5reO75wi-KDAI2vOCamZnWgiwEwq-44LRw0)
+![](https://i.imgur.com/SLvUnEv.png)
+<br>
 # [obtio (Vaxei)](https://mega.nz/file/MPBB0SKZ#I_KLuSPFlVUO8qxh8hzLXWq3VrGZ31uvFc0jf83Py28)
 ![](https://i.imgur.com/sxJR1gr.png)
 <br>
@@ -410,6 +413,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [RyuK (- dumii ryan edit)](http://puu.sh/DWnVu/fd303fb063.osk)
 ![](https://i.imgur.com/dV05Coa.png)
 <br>
+# [RyuK (boop)](https://mega.nz/file/EDwxQZyT#bHTNT_7ku88aRBL_J2xS8OOkANzw6jsSKSbjg1Rm8Wc)
+![](https://i.imgur.com/MFwVPUJ.png)
+<br>
 # [RyuK (Delis Except It Is Varvalian)](https://mizaruyea.s-ul.eu/5lSwk7ay)
 ![](https://i.imgur.com/4jRAKzd.png)
 <br>
@@ -436,6 +442,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 <br>
 # [Skydiver (Mathi)](http://skins.osuck.net/index.php?newsid=605)
 ![](https://i.imgur.com/FoIXXPL.png)
+<br>
+# [Spare (Bloo)](https://mega.nz/file/ROhVlZ4T#SHHDntvYJovS5EpnCNxOTr7COUXNAr6V_rOI5tIWAtM)
+![](https://i.imgur.com/s4aeLFG.png)
 <br>
 # [Spare (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
