@@ -56,6 +56,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [Aricin (azer8#dawn)](http://www.mediafire.com/file/39953ocm4o7zgbe/%2523azer8dawn.osk/file)
 ![](https://i.imgur.com/prwNbJn.png)
 <br>
+# [Arnold24x24 (Apr-2020)](https://mega.nz/file/EfxV1ITC#xKL6qGD3_muNAtL9rBJj2psSSnM5fP-wZjQnUIyfkUM)
+![](https://i.imgur.com/zWbIBJ0.png)
+<br>
 # [ASecretBox (Feb-2020)](https://mega.nz/#!gSphHKTD!FeDNxc5LHZl5qr-TAA2eGzWzZzfl315xea5v7WapBUg)
 ![](https://i.imgur.com/3vN7Hw5.png)
 <br>
