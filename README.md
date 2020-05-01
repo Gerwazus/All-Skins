@@ -35,6 +35,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [a_Blue (Vaxei)](http://puu.sh/z0YMU/217e926ca9.osk)
 ![](https://i.imgur.com/IeYmy2H.png)
 <br>
+# [Abyssal (Apr-2020)](https://mega.nz/file/MGphTJxY#qdooG9O6jpd0vl2Az1jMSNmHn15FZ5-bb1gtxVAm3CQ)
+![](https://i.imgur.com/POXnwl0.png)
+<br>
 # [Akolibed (Vaxei)](http://puu.sh/z0YMU/217e926ca9.osk)
 ![](https://i.imgur.com/IeYmy2H.png)
 <br>
@@ -278,6 +281,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [Maiaz (fieryrage)](https://gerwi3.s-ul.eu/JhZHOOLC)
 ![](https://i.imgur.com/ju3fyVW.png)
 <br>
+# [Marek Marucha (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
+<br>
 # [Mastasz (Cookiezi)](https://gerwi2.s-ul.eu/wMpDZ4H4)
 ![](https://i.imgur.com/4ScWmol.png)
 <br>
@@ -481,6 +487,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 <br>
 # [Vamhi (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
+<br>
+# [Varvalian with trail](https://mega.nz/file/8XxDCLqa#uWEHqmaxxgo0_GG6v5C6PtJXQvAUodvJjy23gYBP7lM)
+![](https://i.imgur.com/90AoovB.png)
 <br>
 # [Vaxei (13-01-2018)](http://puu.sh/z0YMU/217e926ca9.osk)
 ![](https://i.imgur.com/IeYmy2H.png)
