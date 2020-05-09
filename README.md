@@ -458,6 +458,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [Spare (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
+# [Spare (WhiteCat)](https://gerwi2.s-ul.eu/GNrMFZIT )
+![](https://i.imgur.com/zGkZ5lN.png)
+<br>
 # [Stoof (11-Sep-2019)](http://puu.sh/C673U/08dbb0dbe8.osk)
 ![](https://i.imgur.com/kekepQi.png)
 <br>
