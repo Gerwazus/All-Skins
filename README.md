@@ -128,6 +128,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [ChocoPafe (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
+# [CXu](https://mega.nz/file/pD4V3SII#MTgm9Cu_ZkAvYMAtUzxDVTsoKG6IQMvC67SbfpxRN8E)
+![](https://i.imgur.com/NJCMYZk.png)
+<br>
 # [DanyL (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
@@ -157,6 +160,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 <br>
 # [FGSky (Vaxei)](https://gerwi.s-ul.eu/N9P0Dsst)
 ![](https://cdn.discordapp.com/attachments/660554455808475149/687199468772524048/unknown.png)
+<br>
+# [FGSky (2018)](https://mega.nz/file/wb42xKTB#etGyr9jFT4CHeUkYPqv_BCsGLYxMw6v_GC2c8Z-iZdk)
+![](https://i.imgur.com/R7COAgk.png)
 <br>
 # [fieryrage](http://puu.sh/DzzXo/7d82d1b303.osk)
 ![](https://i.imgur.com/uHXzGH6.jpg)
@@ -335,11 +341,17 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [morgn (Jan-2020)](https://gerwi3.s-ul.eu/G51e8xcc)
 ![](https://i.imgur.com/DgAhKxr.png)
 <br>
+# [morgn (Mathi)](http://skins.osuck.net/index.php?newsid=605)
+![](https://i.imgur.com/FoIXXPL.png)
+<br>
 # morgn (Feb-2020)|PRIVATE SKIN, SORRY!|
 ![](https://i.imgur.com/eRrUhZd.jpg)
 <br>
 # [MouseEasy DT](https://gerwi3.s-ul.eu/y4RYYcC7)
 ![](https://i.imgur.com/NiqZt8O.png)
+<br>
+# [MouseEasy (Karthy)](https://puu.sh/EMGf7/357ac93098.osk)
+![](https://i.imgur.com/rwbjbfK.png)
 <br>
 # [MrBooM (21-Oct-2019)](https://mega.nz/#!SNBkVCgL!Nw6hBsK2BFGVOGJvVlTcu4Nwa-7B70DMS-ctatVjSrQ)
 ![](https://camo.githubusercontent.com/1a7a634a50f2df9a0006a8ed020d56b96c02615c/68747470733a2f2f692e696d6775722e636f6d2f6e6f444c79566a2e706e67)
