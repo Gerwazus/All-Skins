@@ -467,6 +467,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [Spare (Bloo)](https://mega.nz/file/ROhVlZ4T#SHHDntvYJovS5EpnCNxOTr7COUXNAr6V_rOI5tIWAtM)
 ![](https://i.imgur.com/s4aeLFG.png)
 <br>
+# [Spare (Mathi)](http://skins.osuck.net/index.php?newsid=605)
+![](https://i.imgur.com/FoIXXPL.png)
+<br>
 # [Spare (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
