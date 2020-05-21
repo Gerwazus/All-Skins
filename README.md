@@ -95,7 +95,7 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [Bartek22830 v2.3](http://bit.ly/2kGnkHk)
 ![](https://osu.ppy.sh/ss/13839273/f63f)
 <br>
-# [Bartek22830 (Apr-2020](https://mega.nz/file/0W4ziBoZ#EbsWLolZHcrAhcdqeg18mf0iwXKDWouGkc-u-nB6E1A)
+# [Bartek22830 (Apr-2020)](https://mega.nz/file/0W4ziBoZ#EbsWLolZHcrAhcdqeg18mf0iwXKDWouGkc-u-nB6E1A)
 ![](https://i.imgur.com/sRUcEcz.png)
 <br>
 # [Cappy (Toy)](https://gerwi3.s-ul.eu/xamt78VD)
