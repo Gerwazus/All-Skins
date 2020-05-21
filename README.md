@@ -284,6 +284,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [lain (Rafis)](https://gerwi2.s-ul.eu/I8WswyCk)
 ![](https://i.imgur.com/LnkN8Bl.png)
 <br>
+# [Lifeline (Rafis)](https://mega.nz/file/FKQjXKpT#vHEVZzcqjIk1bVG1bJXOK--VbJYNv0fjf63HRyiMb2U)
+![](https://i.imgur.com/2JKuNFT.png)
+<br>
 # [Maiaz (fieryrage)](https://gerwi3.s-ul.eu/JhZHOOLC)
 ![](https://i.imgur.com/ju3fyVW.png)
 <br>
@@ -377,6 +380,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [Neox (Rafis+RyuK+Vaxei)](https://gerwi3.s-ul.eu/OUBeBmMn)
 ![](https://i.imgur.com/FfVXbx6.png)
 <br>
+# [Not DT Farmer (Rafis)](https://mega.nz/file/lfw3ETRb#vNdsVB77zETiqs1viwQ3gnbfQlnB4Zce3C_-zuJN9MI)
+![](https://i.imgur.com/AvfvIZl.png)
+<br>
 # [obtio (Rafis)](https://gerwi2.s-ul.eu/1aSbThzJ)
 ![](https://i.imgur.com/IMS7DKs.png)
 <br>
@@ -463,6 +469,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 <br>
 # [Skydiver (Mathi)](http://skins.osuck.net/index.php?newsid=605)
 ![](https://i.imgur.com/FoIXXPL.png)
+<br>
+# [Spare (May-2020)](https://mega.nz/file/VW4xibaL#-1S9DmusatQiwMsxFhiDynsKFSH5tnmnYk3sqPXYHBc)
+![](https://i.imgur.com/OnvbOaL.png)
 <br>
 # [Spare (Bloo)](https://mega.nz/file/ROhVlZ4T#SHHDntvYJovS5EpnCNxOTr7COUXNAr6V_rOI5tIWAtM)
 ![](https://i.imgur.com/s4aeLFG.png)
