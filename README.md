@@ -98,6 +98,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [Bartek22830 (Apr-2020)](https://mega.nz/file/0W4ziBoZ#EbsWLolZHcrAhcdqeg18mf0iwXKDWouGkc-u-nB6E1A)
 ![](https://i.imgur.com/sRUcEcz.png)
 <br>
+# [BeasttrollMC (default)](https://mega.nz/file/8Wo23QrD#WwePJZqE9AQuZgCYJWZfD0DauwBbPNeMfjzQk9zzZhM)
+![](https://i.imgur.com/7Jt8E6D.png)
+<br>
 # [Cappy (Toy)](https://gerwi3.s-ul.eu/xamt78VD)
 ![](https://i.imgur.com/FQ8rdIm.png)
 <br>
@@ -514,6 +517,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 <br>
 # [Vamhi (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
+<br>
+# [Varvalian](https://skins.osuck.net/index.php?newsid=485)
+![](https://cdn.discordapp.com/attachments/660554455808475149/687195537547591680/unknown.png)
 <br>
 # [Varvalian with trail](https://mega.nz/file/8XxDCLqa#uWEHqmaxxgo0_GG6v5C6PtJXQvAUodvJjy23gYBP7lM)
 ![](https://i.imgur.com/90AoovB.png)
