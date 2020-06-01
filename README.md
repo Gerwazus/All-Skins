@@ -23,6 +23,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [-PloX (Rohulk 4.0)](http://www.mediafire.com/file/fawy6kdalz3jlpd/Rohulk_4.0%283%29.osk)
 ![](https://i.imgur.com/uNXlAN7.png)
 <br>
+# [-PloX (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
+<br>
 # [-Reuto- (Varvalian+trail)](https://puu.sh/CPqX5/ade6682fc9.osk)
 ![](https://i.imgur.com/exblX5F.png)
 <br>
@@ -31,6 +34,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 <br>
 # [a_Blue (Rafis)](https://gerwi2.s-ul.eu/1aSbThzJ)
 ![](https://i.imgur.com/IMS7DKs.png)
+<br>
+# [a_Blue (Rafis2)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
 <br>
 # [a_Blue (Vaxei)](http://puu.sh/z0YMU/217e926ca9.osk)
 ![](https://i.imgur.com/IeYmy2H.png)
@@ -55,6 +61,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 <br>
 # [Andros (Varvalian)](https://skins.osuck.net/index.php?newsid=485)
 ![](https://cdn.discordapp.com/attachments/660554455808475149/687195537547591680/unknown.png)
+<br>
+# [Andros (Varvalian with trail)](https://mega.nz/file/8XxDCLqa#uWEHqmaxxgo0_GG6v5C6PtJXQvAUodvJjy23gYBP7lM)
+![](https://i.imgur.com/90AoovB.png)
 <br>
 # [Aricin (azer8#dawn)](http://www.mediafire.com/file/39953ocm4o7zgbe/%2523azer8dawn.osk/file)
 ![](https://i.imgur.com/prwNbJn.png)
@@ -131,6 +140,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [ChocoPafe (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
+# [Crezz](https://mega.nz/file/0TpjxBxQ#Z-fxf1XGWL3xM3SLgLCBParej2EJmgzhiM-epyW8YOA)
+![](https://i.imgur.com/EgmuWQO.png)
+<br>
 # [CXu](https://mega.nz/file/pD4V3SII#MTgm9Cu_ZkAvYMAtUzxDVTsoKG6IQMvC67SbfpxRN8E)
 ![](https://i.imgur.com/NJCMYZk.png)
 <br>
@@ -154,6 +166,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 <br>
 # [Emilia (23-Nov-2019)](https://gerwi2.s-ul.eu/Eg5jjPPP)
 ![](https://i.imgur.com/VZ2smBl.png)
+<br>
+# [Enumi (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
 <br>
 # [EZChamp (-GN)](https://gerwi2.s-ul.eu/DArTruX7)
 ![](https://i.imgur.com/OLvRqjS.png)
@@ -353,6 +368,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # morgn (Feb-2020)|PRIVATE SKIN, SORRY!|
 ![](https://i.imgur.com/eRrUhZd.jpg)
 <br>
+# [morgn (Rafis)](https://mega.nz/file/QWIi1Yob#HuZwWsY316mt3v5qvjH0gi69pbJnSzsIqrGGnAnYvnU)
+![](https://i.imgur.com/IEoSCR8.png)
+<br>
 # [MouseEasy DT](https://gerwi3.s-ul.eu/y4RYYcC7)
 ![](https://i.imgur.com/NiqZt8O.png)
 <br>
@@ -409,6 +427,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 <br>
 # [Ponytail (20-Sep-2019)](https://gerwi2.s-ul.eu/UpwA6ZsP)
 ![](https://i.imgur.com/o9VRoFm.png)
+<br>
+# [Rafis 2020]()
+![](https://i.imgur.com/CqDhBWY.png)
 <br>
 # [Rafis 2018](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
@@ -476,6 +497,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [Spare (May-2020)](https://mega.nz/file/VW4xibaL#-1S9DmusatQiwMsxFhiDynsKFSH5tnmnYk3sqPXYHBc)
 ![](https://i.imgur.com/OnvbOaL.png)
 <br>
+# [Spare (May-2020) 2](https://mega.nz/file/pKBgRIja#e1hl3BipiHUt9rGpsaYQ4uDuP4oVvI0SR2oE_WoZAaE)
+![](https://i.imgur.com/zgxI5FY.png)
+<br>
 # [Spare (Bloo)](https://mega.nz/file/ROhVlZ4T#SHHDntvYJovS5EpnCNxOTr7COUXNAr6V_rOI5tIWAtM)
 ![](https://i.imgur.com/s4aeLFG.png)
 <br>
@@ -490,6 +514,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 <br>
 # [Stoof (11-Sep-2019)](http://puu.sh/C673U/08dbb0dbe8.osk)
 ![](https://i.imgur.com/kekepQi.png)
+<br>
+# [thaibuy](https://mega.nz/file/EbICjCKa#W8ihzTOqLMWhRebrusawixRnco_aJFQbyKqqqqiREis)
+![](https://i.imgur.com/dmLGcDq.png)
 <br>
 # [Theodore (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
