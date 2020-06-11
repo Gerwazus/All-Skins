@@ -71,6 +71,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [Arnold24x24 (Apr-2020)](https://mega.nz/file/EfxV1ITC#xKL6qGD3_muNAtL9rBJj2psSSnM5fP-wZjQnUIyfkUM)
 ![](https://i.imgur.com/zWbIBJ0.png)
 <br>
+# [ASecretBox (Jun-2020)](https://mega.nz/file/Ybpk1QiT#qui71oTOGi_wdNwN5Xp3WKg4mB1018oEY41gtNBbQBU)
+![](https://i.imgur.com/XnvM8Ej.png)
+<br>
 # [ASecretBox (Feb-2020)](https://mega.nz/#!gSphHKTD!FeDNxc5LHZl5qr-TAA2eGzWzZzfl315xea5v7WapBUg)
 ![](https://i.imgur.com/3vN7Hw5.png)
 <br>
@@ -302,6 +305,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [lain (Rafis)](https://gerwi2.s-ul.eu/I8WswyCk)
 ![](https://i.imgur.com/LnkN8Bl.png)
 <br>
+# [Lifeline (boop)](https://mega.nz/file/EDwxQZyT#bHTNT_7ku88aRBL_J2xS8OOkANzw6jsSKSbjg1Rm8Wc)
+![](https://i.imgur.com/MFwVPUJ.png)
+<br>
 # [Lifeline (Rafis)](https://mega.nz/file/FKQjXKpT#vHEVZzcqjIk1bVG1bJXOK--VbJYNv0fjf63HRyiMb2U)
 ![](https://i.imgur.com/2JKuNFT.png)
 <br>
@@ -344,8 +350,14 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [Merami (11-Nov-2019)](https://gerwi2.s-ul.eu/v4G9jyf1)
 ![](https://i.imgur.com/ok02kRn.png)
 <br>
+# [Merami (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
+<br>
 # [Micca (Vaxei-404)](https://gerwi2.s-ul.eu/whrTYola)
 ![](https://i.imgur.com/rS9VSXm.png)
+<br>
+# [Micca (WhiteCat)](https://mega.nz/file/ofxzkYwJ#C9sXse9_x0ZoQ7fKokr0ebgiVypxOW_FajaEyhyOyp8)
+![](https://i.imgur.com/EmBHYQi.png)
 <br>
 # [MightyDoc (elohere)](https://gerwi3.s-ul.eu/bXkO1W28)
 ![](https://i.imgur.com/1d7ExiA.png)
@@ -410,6 +422,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 # [obtio (Rafis2)](https://mega.nz/file/sDh1DDgT#TA3OKIEK5reO75wi-KDAI2vOCamZnWgiwEwq-44LRw0)
 ![](https://i.imgur.com/SLvUnEv.png)
 <br>
+# [obtio (Rafis3)](https://mega.nz/file/1e43zC6Q#blxR1NpYavuPgWKvVQQXobSM7TiIHIv0lMaeM8uzbA4)
+![](https://i.imgur.com/OrvyBH2.png)
+<br>
 # [obtio (Vaxei)](https://mega.nz/file/MPBB0SKZ#I_KLuSPFlVUO8qxh8hzLXWq3VrGZ31uvFc0jf83Py28)
 ![](https://i.imgur.com/sxJR1gr.png)
 <br>
@@ -445,6 +460,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 <br>
 # [Ralidea (elohere)](https://gerwi2.s-ul.eu/ZzDqU9V9)
 ![](https://i.imgur.com/HBVCEgJ.png)
+<br>
+# [Ralidea (filsdelama)](https://mega.nz/file/cSYm2aKQ#0c-8GE-XGMgxNtxzCqK13tRcylySor-s3Qxu8GwMzmY)
+![](https://i.imgur.com/XAshYMt.png)
 <br>
 # [Red_Pixel (27-Sep-2019)](https://puu.sh/DatIx.osk)
 ![](https://i.imgur.com/PgpPdRN.png)
@@ -529,6 +547,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV
 <br>
 # [Umbre (Rohulk)](https://skins.osuck.net/index.php?newsid=801)
 ![](https://cdn.discordapp.com/attachments/660554455808475149/687194357472034827/unknown.png)
+<br>
+# [Umbre (Varvalian)](https://mega.nz/file/dbxShKxJ#Ory80PGw1aio2YvknGqVeDlXlxR4G-pEpGg9lImwpMk)
+![](https://i.imgur.com/dfU62pW.png)
 <br>
 # [Unexpected (1-Nov-2019)](https://puu.sh/C7Qf6/c3266b8662.osk)
 ![](https://i.imgur.com/7JIWhU8.png)
