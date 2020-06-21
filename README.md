@@ -1,5 +1,5 @@
 **ALL SKINS ARE SORTED BY PLAYER NAME** ⬅️ *Keep in mind that* <br>
-If something is missing/broke please PM me on Discord: https://discord.gg/H4wYtV9
+If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFDT
 <br>
 <br>
 # [- Sakura -](https://mega.nz/file/JCwiyACa#E1wFKXFFx5LzxPeA-N2ovwZn3No9pePhmsMTQtyHKAA)
