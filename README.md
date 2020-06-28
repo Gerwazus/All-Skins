@@ -281,6 +281,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [InBefore (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
+# [Informous old](https://mega.nz/file/Ef4EzCwC#iQzRNjxn5Q_MUvcf9Q3gRQ0M3dB2zAdouqlH4xSymkw)
+![](https://i.imgur.com/BEa8BGK.png)
+<br>
 # [jp0806 (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
