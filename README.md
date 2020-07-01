@@ -200,6 +200,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [FGSky (Vaxei)](https://gerwi.s-ul.eu/N9P0Dsst)
 ![](https://cdn.discordapp.com/attachments/660554455808475149/687199468772524048/unknown.png)
 <br>
+# [FGSky (Jun-2020)](https://mega.nz/file/AHxEgYoD#oDzF4XWzHJj_HSru2Uc-RMIBfoNIOQAqCcqI3rH_SDw)
+![](https://mega.nz/fm/4K5VgJTQ)
+<br>
 # [FGSky (2018)](https://mega.nz/file/wb42xKTB#etGyr9jFT4CHeUkYPqv_BCsGLYxMw6v_GC2c8Z-iZdk)
 ![](https://i.imgur.com/R7COAgk.png)
 <br>
@@ -296,6 +299,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [jpeg (Rafis3)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
+# [Jordan The Bear](https://mega.nz/file/0ex3xQwT#NeNNKBvTY0gVqKFweWHu-B3d6JrUZO4hJHbDhFn4c9U)
+![](https://i.imgur.com/u3yVODQ.png)
+<br>
 # [JustALeaf](https://drive.google.com/file/d/158e5LFuf5eofgI_owMcmbVF2uG_yfNYJ/view?usp=sharing)
 ![](https://i.imgur.com/1mwzUjo.png)
 <br>
@@ -334,6 +340,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [Lifeline (Rafis2)](https://mega.nz/file/FKQjXKpT#vHEVZzcqjIk1bVG1bJXOK--VbJYNv0fjf63HRyiMb2U)
 ![](https://i.imgur.com/zVzk8y2.png)
+<br>
+# [Lifeline (Rafis3)](https://mega.nz/file/QTxyAapB#BOMnKuMhtyQby4VJrGam-MFATo8JXYhRWidWVSoJh7U)
+![](https://i.imgur.com/WdsTjUn.png)
 <br>
 # [Maiaz (fieryrage)](https://gerwi3.s-ul.eu/JhZHOOLC)
 ![](https://i.imgur.com/ju3fyVW.png)
@@ -382,6 +391,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [Micca (WhiteCat)](https://mega.nz/file/ofxzkYwJ#C9sXse9_x0ZoQ7fKokr0ebgiVypxOW_FajaEyhyOyp8)
 ![](https://i.imgur.com/EmBHYQi.png)
+<br>
+# [Micca (WhiteCat+DT)](https://mega.nz/folder/Id8FHaxY#wm4NCpJ5SEPjiY5MGH-0Iw/file/9QMEwabQ)
+![](https://i.imgur.com/MOVGRfu.png)
 <br>
 # [MightyDoc (elohere)](https://gerwi3.s-ul.eu/bXkO1W28)
 ![](https://i.imgur.com/1d7ExiA.png)
@@ -557,8 +569,11 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Spare (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
-# [Spare (WhiteCat)](https://gerwi2.s-ul.eu/GNrMFZIT )
+# [Spare (WhiteCat)](https://gerwi2.s-ul.eu/GNrMFZIT)
 ![](https://i.imgur.com/zGkZ5lN.png)
+<br>
+# [SrChispa (Rafis)](https://mega.nz/file/BaggWIKC#6vfZZ4faJTpbVzgdWtGNTSq7lqc3dXT6CORPkyh-egE)
+![](https://i.imgur.com/W42imnN.png)
 <br>
 # [Stoof (11-Sep-2019)](http://puu.sh/C673U/08dbb0dbe8.osk)
 ![](https://i.imgur.com/kekepQi.png)
@@ -650,6 +665,12 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Xilver](https://gerwi.s-ul.eu/E7bkxdkk)
 ![](https://i.imgur.com/lc6umHw.png)
 <br>
+# [XlI/RyuK (Vaxei/404)](https://mega.nz/file/hzAHnYrb#nLbTxK29IrqTj5mZl4Yob9ZLYh1PeW2LUC6W0y5mGrQ)
+![](https://i.imgur.com/ZSWv5Ak.png)
+<br>
+# [XlI/RyuK (Yugen)](https://tetsui.s-ul.eu/t3yyAk3g2QugMs9O)
+![](https://i.imgur.com/IsMr3fQ.png)
+<br>
 # [YokesPai (Feb-2020)](https://cdn.discordapp.com/attachments/510553668475551755/675075156565164051/YokesPai.osk)
 ![](https://i.imgur.com/IVC0ANI.png)
 <br>
@@ -658,6 +679,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [YungLing/BeasttrollMC (19-Sep-2019)](https://mega.nz/#!73xXXYBZ!iplvw4ch5YGrshMMfu2FloslWXNJypO4s2pXiWv_fJg)
 ![](https://i.imgur.com/DL8xQIe.png)
+<br>
+# [Yuuzinho (Rafis)](https://mega.nz/file/RLwA1aKQ#pl-DE_ZknSn5Ejw-skC2g6XxX1fAsI1PdvKZWANAJOY)
+![](https://i.imgur.com/oLPGhUQ.png)
 <br>
 # [Zeisen- (Mathi)](http://skins.osuck.net/index.php?newsid=605)
 ![](https://i.imgur.com/FoIXXPL.png)
