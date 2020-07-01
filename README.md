@@ -1,4 +1,4 @@
-**ALL SKINS ARE SORTED BY PLAYER NAME** ⬅️ *Keep in mind that* <br>
+**ALL SKINS ARE SORTED BY PLAYER NAME** ⬅️ *Keep in mind that* CTRL+F <br>
 If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFDT
 <br>
 <br>
