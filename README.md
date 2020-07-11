@@ -50,6 +50,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Akolibed (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
+# [Akolibed (Rafis - elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
+![](https://osu.ppy.sh/ss/13839226/eaad)
+<br>
 # [Akolibed (Vaxei)](http://puu.sh/z0YMU/217e926ca9.osk)
 ![](https://i.imgur.com/IeYmy2H.png)
 <br>
@@ -65,8 +68,14 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Andros (Mathi-mix)](http://www.mediafire.com/file/88nua703515qk6y/Andros.osk/file)
 ![](https://i.imgur.com/WpFAJCt.png)
 <br>
+# [Andros (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
+<br>
 # [Andros (Varvalian)](https://skins.osuck.net/index.php?newsid=485)
 ![](https://cdn.discordapp.com/attachments/660554455808475149/687195537547591680/unknown.png)
+<br>
+# [Andros (Varvalian2)](https://mega.nz/file/gXYDBKxb#B0vq1Q-AYDb7NMeA6x7kMKFhxx6y12ysuPe24xltARw)
+![](https://i.imgur.com/wKc0sZC.png)
 <br>
 # [Andros (Varvalian with trail)](https://mega.nz/file/8XxDCLqa#uWEHqmaxxgo0_GG6v5C6PtJXQvAUodvJjy23gYBP7lM)
 ![](https://i.imgur.com/90AoovB.png)
@@ -97,6 +106,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [ASecretBox (Rafis)](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://osu.ppy.sh/ss/13422086/af38)
+<br>
+# [ASecretBox (Rafis2)](https://mega.nz/file/NLIRkIJY#utc3jMK2adJzWme50-GWJsUkHIDuVcnTscEo6zraSN8)
+![](https://i.imgur.com/YcbDGb2.png)
 <br>
 # [ASecretBox (Rafis - elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
@@ -269,6 +281,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [idke 1.2](https://idke.s-ul.eu/gWWsQDGI)
 ![](https://i.imgur.com/xA7SRxT.png)
 <br>
+# [im a fancy lad (July-2020)](https://mega.nz/file/wLIymSRI#KjcsKpRgO-tfguqLZbvlcWktUuDBBBzH8rwIGop7DrY)
+![](https://i.imgur.com/fYmz1J1.png)
+<br>
 # [im a fancy lad (fieryrage)](http://puu.sh/DzzXo/7d82d1b303.osk)
 ![](https://i.imgur.com/uHXzGH6.jpg)
 <br>
@@ -356,8 +371,11 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Math God (CK)](https://gerwi2.s-ul.eu/GNrMFZIT )
 ![](https://i.imgur.com/zGkZ5lN.png)
 <br>
-# [Mathi](http://skins.osuck.net/index.php?newsid=605)
+# [Mathi](https://skins.osuck.net/index.php?newsid=100)
 ![](https://i.imgur.com/FoIXXPL.png)
+<br>
+# [Mathi new](http://skins.osuck.net/index.php?newsid=605)
+![](https://i.imgur.com/8ZM6rmd.png)
 <br>
 # [Mathi (elohere)](https://gerwi2.s-ul.eu/ZzDqU9V9)
 ![](https://i.imgur.com/HBVCEgJ.png)
@@ -457,6 +475,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [Not DT Farmer (Rafis)](https://mega.nz/file/lfw3ETRb#vNdsVB77zETiqs1viwQ3gnbfQlnB4Zce3C_-zuJN9MI)
 ![](https://i.imgur.com/AvfvIZl.png)
+<br>
+# [Not DT Farmer (Rafis2)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
 <br>
 # [obtio (Rafis)](https://gerwi2.s-ul.eu/1aSbThzJ)
 ![](https://i.imgur.com/IMS7DKs.png)
