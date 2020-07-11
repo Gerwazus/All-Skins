@@ -213,7 +213,7 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 ![](https://cdn.discordapp.com/attachments/660554455808475149/687199468772524048/unknown.png)
 <br>
 # [FGSky (Jun-2020)](https://mega.nz/file/AHxEgYoD#oDzF4XWzHJj_HSru2Uc-RMIBfoNIOQAqCcqI3rH_SDw)
-![](https://mega.nz/fm/4K5VgJTQ)
+![](https://i.imgur.com/360Aiyy.png)
 <br>
 # [FGSky (2018)](https://mega.nz/file/wb42xKTB#etGyr9jFT4CHeUkYPqv_BCsGLYxMw6v_GC2c8Z-iZdk)
 ![](https://i.imgur.com/R7COAgk.png)
