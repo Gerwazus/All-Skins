@@ -140,6 +140,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [BeasttrollMC (default)](https://mega.nz/file/8Wo23QrD#WwePJZqE9AQuZgCYJWZfD0DauwBbPNeMfjzQk9zzZhM)
 ![](https://i.imgur.com/7Jt8E6D.png)
 <br>
+# [Bubbleman (July-2020)](https://mega.nz/file/dCY2zI7T#jMNlY6OhdBLHF2CdEZom7pmUbnOqFm9gB_p3mCZdWDs)
+![](https://i.imgur.com/3YxHwY2.png)
+<br>
 # [Cappy (Toy)](https://gerwi3.s-ul.eu/xamt78VD)
 ![](https://i.imgur.com/FQ8rdIm.png)
 <br>
@@ -670,6 +673,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [WhiteCat (yaong+edit)](https://puu.sh/CeEi2/ffdaaa935a.osk)
 ![](https://i.imgur.com/o4ItEQ2.png)
+<br>
+# [Woey (July-2020)](https://mega.nz/file/NfBgCIjR#wLTacOABPsMgntZvWHbsKk_pOLpOqOLSDSOJ1salm-c)
+![](https://i.imgur.com/zpXmZci.png)
 <br>
 # [Woey (Feb-2020)](https://gerwi3.s-ul.eu/cu6XgScI)
 ![](https://i.imgur.com/vZOtjpb.png)
