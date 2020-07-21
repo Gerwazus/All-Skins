@@ -47,6 +47,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Abyssal (Apr-2020)](https://mega.nz/file/MGphTJxY#qdooG9O6jpd0vl2Az1jMSNmHn15FZ5-bb1gtxVAm3CQ)
 ![](https://i.imgur.com/POXnwl0.png)
 <br>
+# [Aireu/lain (Rafis)](https://gerwi2.s-ul.eu/I8WswyCk)
+![](https://i.imgur.com/LnkN8Bl.png)
+<br>
 # [Akolibed (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
@@ -368,6 +371,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Marek Marucha (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
+# [Mastasz but nowy chuj](https://mega.nz/file/UKxXTQqC#vRIjcKwj2PyT_v-FhFgdYSH2Rib8lIcTHJqPpOMlF6g)
+![](https://i.imgur.com/EsLokfK.png)
+<br>
 # [Mastasz (Cookiezi)](https://gerwi2.s-ul.eu/wMpDZ4H4)
 ![](https://i.imgur.com/4ScWmol.png)
 <br>
@@ -395,6 +401,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Maxim Bogdan (Karthy+DT2)](https://gerwi3.s-ul.eu/L6obDCCj)
 ![](https://i.imgur.com/HyJFX5c.png)
 <br>
+# [mcy4 (boop)](https://mega.nz/file/EDwxQZyT#bHTNT_7ku88aRBL_J2xS8OOkANzw6jsSKSbjg1Rm8Wc)
+![](https://i.imgur.com/MFwVPUJ.png)
+<br>
 # [mcy4 (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
@@ -403,6 +412,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [Merami (11-Nov-2019)](https://gerwi2.s-ul.eu/v4G9jyf1)
 ![](https://i.imgur.com/ok02kRn.png)
+<br>
+# [Merami (404)](https://drive.google.com/file/d/1Kgdp9nN48y-4lyt4sbgo6p7LXAjLHFnf/view?usp=drivesdk)
+![](https://i.imgur.com/zqjD8ub.png)
 <br>
 # [Merami (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
@@ -598,6 +610,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [SrChispa (Rafis)](https://mega.nz/file/BaggWIKC#6vfZZ4faJTpbVzgdWtGNTSq7lqc3dXT6CORPkyh-egE)
 ![](https://i.imgur.com/W42imnN.png)
+<br>
+# [SrChispa (Rafis2)](https://mega.nz/file/BaggWIKC#6vfZZ4faJTpbVzgdWtGNTSq7lqc3dXT6CORPkyh-egE)
+![](https://i.imgur.com/OU5wGnb.png)
 <br>
 # [Stoof (11-Sep-2019)](http://puu.sh/C673U/08dbb0dbe8.osk)
 ![](https://i.imgur.com/kekepQi.png)
