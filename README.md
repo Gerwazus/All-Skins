@@ -368,6 +368,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Maiaz (fieryrage)](https://gerwi3.s-ul.eu/JhZHOOLC)
 ![](https://i.imgur.com/ju3fyVW.png)
 <br>
+# [MAREK MARUCHA (default)](https://mega.nz/file/8Wo23QrD#WwePJZqE9AQuZgCYJWZfD0DauwBbPNeMfjzQk9zzZhM)
+![](https://i.imgur.com/7Jt8E6D.png)
+<br>
 # [Marek Marucha (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
