@@ -200,6 +200,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Detze (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
+# [Dialga (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
+![](https://osu.ppy.sh/ss/13839226/eaad)
+<br>
 # [Doki](https://mega.nz/#!4TJFiSxJ!DSIKyILCXPM3eDI4b8O8wnRV18GsQfL3liw1tqatWco)
 ![](https://i.imgur.com/EecP5hX.png)
 <br>
@@ -353,6 +356,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [lain (Rafis)](https://gerwi2.s-ul.eu/I8WswyCk)
 ![](https://i.imgur.com/LnkN8Bl.png)
 <br>
+# [Lifeline (Aug-2020)](https://mega.nz/file/ADZRBYAS#G2A-B8SqqiauNDFmPMT2dgLJQo6iOHEz9ZdZ33uuILk)
+![](https://i.imgur.com/GM5RoNZ.png)
+<br>
 # [Lifeline (boop)](https://mega.nz/file/EDwxQZyT#bHTNT_7ku88aRBL_J2xS8OOkANzw6jsSKSbjg1Rm8Wc)
 ![](https://i.imgur.com/MFwVPUJ.png)
 <br>
@@ -443,6 +449,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [MoeYandere (Kamui)](http://puu.sh/Dt3QZ/17ed54f84c.osk)
 ![](https://osu.ppy.sh/ss/13839041/b64c)
 <br>
+# [morgn (Aug-2020)](https://mega.nz/file/lPJjDAQD#_NOX_jbpsXvoAdA2VgxK-SeQbxORRGirSf6CXRWktEY)
+![](https://i.imgur.com/7KT9Y2g.png)
+<br>
 # [morgn (Jan-2020)](https://gerwi3.s-ul.eu/G51e8xcc)
 ![](https://i.imgur.com/DgAhKxr.png)
 <br>
@@ -475,6 +484,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [mReKk (Karthy+DT2)](https://puu.sh/EMGf7/357ac93098.osk)
 ![](https://i.imgur.com/rwbjbfK.png)
+<br>
+# [mrekk (Ponytail)](https://gerwi2.s-ul.eu/UpwA6ZsP)
+![](https://i.imgur.com/o9VRoFm.png)
 <br>
 # [mReKk (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
@@ -524,6 +536,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Ponytail (20-Sep-2019)](https://gerwi2.s-ul.eu/UpwA6ZsP)
 ![](https://i.imgur.com/o9VRoFm.png)
 <br>
+# [Rafis (Aug-2020)](https://mega.nz/file/VGpWTArT#C4i4SOeQP7UH1gw24RA-mwsQfa7BSZXtXCwgorDIwO4)
+![](https://i.imgur.com/K0uZQcK.png)
+<br>
 # [Rafis 2020](https://mega.nz/file/dWwQjAYa#9aqhLocPAX0pGgOHXL7wU6yE9sDWoyCj9-80yoH6Zf0)
 ![](https://i.imgur.com/CqDhBWY.png)
 <br>
@@ -544,6 +559,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [Ralidea (filsdelama)](https://mega.nz/file/cSYm2aKQ#0c-8GE-XGMgxNtxzCqK13tRcylySor-s3Qxu8GwMzmY)
 ![](https://i.imgur.com/XAshYMt.png)
+<br>
+# [Ralidea (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
 <br>
 # [Red_Pixel (27-Sep-2019)](https://puu.sh/DatIx.osk)
 ![](https://i.imgur.com/PgpPdRN.png)
@@ -643,6 +661,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [unko 2019](https://gerwi3.s-ul.eu/kw1CDWs4)
 ![](https://i.imgur.com/axb9Omn.png)
+<br>
+# [Utami (WubwoofWolf)](https://mega.nz/file/YXZjnQbQ#DB4bvkDBR5pO_kLF7wHneeiUZl8Cc3YQ_7rXNG2Q39s)
+![](https://i.imgur.com/jxBCmZM.png)
 <br>
 # [uyghti (Rafis)](https://gerwi3.s-ul.eu/znXgQG8u)
 ![](https://i.imgur.com/OLslPXp.png)
