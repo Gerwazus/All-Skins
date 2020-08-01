@@ -458,7 +458,7 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [morgn (Mathi)](http://skins.osuck.net/index.php?newsid=605)
 ![](https://i.imgur.com/FoIXXPL.png)
 <br>
-# morgn (Feb-2020)|PRIVATE SKIN, SORRY!|
+# [morgn (Feb-2020)](https://skins.osuck.net/index.php?newsid=1269)
 ![](https://i.imgur.com/eRrUhZd.jpg)
 <br>
 # [morgn (Rafis)](https://mega.nz/file/QWIi1Yob#HuZwWsY316mt3v5qvjH0gi69pbJnSzsIqrGGnAnYvnU)
