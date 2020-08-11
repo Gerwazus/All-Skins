@@ -47,6 +47,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Abyssal (Apr-2020)](https://mega.nz/file/MGphTJxY#qdooG9O6jpd0vl2Az1jMSNmHn15FZ5-bb1gtxVAm3CQ)
 ![](https://i.imgur.com/POXnwl0.png)
 <br>
+# [aetrna (Aug-2020)](https://mega.nz/file/5ehFgZia#zKM7zdk2JKeImA8HxN2e0F1c0w1y0wdyF7QNGPAafQ4)
+![](https://i.imgur.com/wIedqLq.png)
+<br>
 # [Aireu/lain (Rafis)](https://gerwi2.s-ul.eu/I8WswyCk)
 ![](https://i.imgur.com/LnkN8Bl.png)
 <br>
@@ -238,6 +241,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [Flaven (Rafis)](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://osu.ppy.sh/ss/13422086/af38)
+<br>
+# [FlyingTuna (Aug-2020)](https://mega.nz/file/RLwFjTaC#FDz09AgBbRIlHFuUltWuQJoxLX-xpt8XqmKPIyIwmOI)
+![](https://i.imgur.com/f0kGQpB.png)
 <br>
 # [FlyingTuna (1.4)](https://mega.nz/#F!1nxSiQjS!SPbpxdtba7S1gZXeNVUzaw?g35lkaIQ)
 ![](https://i.imgur.com/GkaQls9.png)
@@ -574,6 +580,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [Rhythm blue (idke 1.2)](https://idke.s-ul.eu/gWWsQDGI)
 ![](https://i.imgur.com/xA7SRxT.png)
+<br>
+# [Riot (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
 <br>
 # [rip fc (Rafis)](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://osu.ppy.sh/ss/13422086/af38)
