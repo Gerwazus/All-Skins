@@ -35,6 +35,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [-Reuto- (1-Nov-2019)](https://drive.google.com/drive/folders/10RFjhmKlXs29em_NB4gVZE5T9uDhEogT)
 ![](https://i.imgur.com/1nFFoH1.jpg)
 <br>
+# [-Wolfy- (Aug-2020)](https://mega.nz/file/BG5ATQwB#ZekvHRr_rTqDGyMkRX0j3hrmVSo7j5HTeUdnZyXrl5s)
+![](https://i.imgur.com/M2H3NFC.png)
+<br>
 # [a_Blue (Rafis)](https://gerwi2.s-ul.eu/1aSbThzJ)
 ![](https://i.imgur.com/IMS7DKs.png)
 <br>
@@ -43,6 +46,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [a_Blue (Vaxei)](http://puu.sh/z0YMU/217e926ca9.osk)
 ![](https://i.imgur.com/IeYmy2H.png)
+<br>
+# [A21 (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
 <br>
 # [Abyssal (Apr-2020)](https://mega.nz/file/MGphTJxY#qdooG9O6jpd0vl2Az1jMSNmHn15FZ5-bb1gtxVAm3CQ)
 ![](https://i.imgur.com/POXnwl0.png)
@@ -535,6 +541,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [Paraqeet (Apr-2020)](https://mega.nz/file/5fZjgCrQ#CUL-tBlSCVqn3C23khWcjHaR_KTWHVQeb8hCki21f8o)
 ![](https://i.imgur.com/q7VskHr.png)
+<br>
+# [Paraqeet (boop)](https://mega.nz/file/EDwxQZyT#bHTNT_7ku88aRBL_J2xS8OOkANzw6jsSKSbjg1Rm8Wc)
+![](https://i.imgur.com/MFwVPUJ.png)
 <br>
 # [Paraqeet (Vaxei)](http://puu.sh/z0YMU/217e926ca9.osk)
 ![](https://i.imgur.com/QycB5tR.png)
