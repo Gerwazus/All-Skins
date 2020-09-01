@@ -2,6 +2,9 @@
 If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFDT
 <br>
 <br>
+# [221 (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
+<br>
 # [- Sakura -](https://mega.nz/file/JCwiyACa#E1wFKXFFx5LzxPeA-N2ovwZn3No9pePhmsMTQtyHKAA)
 ![](https://i.imgur.com/YmW1u5D.png)
 <br>
@@ -338,6 +341,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Jordan The Bear](https://mega.nz/file/0ex3xQwT#NeNNKBvTY0gVqKFweWHu-B3d6JrUZO4hJHbDhFn4c9U)
 ![](https://i.imgur.com/u3yVODQ.png)
 <br>
+# [jot_bab (Sep-2020)](https://mega.nz/file/heRFGA5Y#okUxajheKRdgQFQjgjEvAAyEtTNAnwNFj8BpAKjgx2s)
+![](https://i.imgur.com/Tzv8gxx.png)
+<br>
 # [JustALeaf](https://drive.google.com/file/d/158e5LFuf5eofgI_owMcmbVF2uG_yfNYJ/view?usp=sharing)
 ![](https://i.imgur.com/1mwzUjo.png)
 <br>
@@ -490,6 +496,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [mReKk (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
+<br>
+# [mReKk (FunOrange)](https://i.imgur.com/NFadwGh.png)
+![](https://mega.nz/file/kPIVmY6R#hO1hHuc3fXMV1xGPY39_y_yBiFrW9EYzNrK3qlAQXfs)
 <br>
 # [mReKk (Karthy+DT)](https://gerwi3.s-ul.eu/B9ygCLTS)
 ![](https://i.imgur.com/LGfHo4V.png)
