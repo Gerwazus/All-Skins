@@ -68,6 +68,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Akolibed (Rafis - elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
+# [Akolibed (talala)](https://mega.nz/file/kaQjXACI#J17EMV-L2pIdTHfZ4M8UkeO0iWdRfFivt1oqqCp2uAc)
+![](https://i.imgur.com/eI6pwwg.png)
+<br>
 # [Akolibed (Vaxei)](http://puu.sh/z0YMU/217e926ca9.osk)
 ![](https://i.imgur.com/IeYmy2H.png)
 <br>
@@ -374,6 +377,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [lain (Rafis)](https://gerwi2.s-ul.eu/I8WswyCk)
 ![](https://i.imgur.com/LnkN8Bl.png)
 <br>
+# [Lifeline (Sep-2020)](https://mega.nz/file/1e43zC6Q#blxR1NpYavuPgWKvVQQXobSM7TiIHIv0lMaeM8uzbA4)
+![](https://i.imgur.com/OrvyBH2.png)
+<br>
 # [Lifeline (Aug-2020)](https://mega.nz/file/ADZRBYAS#G2A-B8SqqiauNDFmPMT2dgLJQo6iOHEz9ZdZ33uuILk)
 ![](https://i.imgur.com/GM5RoNZ.png)
 <br>
@@ -599,6 +605,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Rhythm blue (idke 1.2)](https://idke.s-ul.eu/gWWsQDGI)
 ![](https://i.imgur.com/xA7SRxT.png)
 <br>
+# [Rhythm blue (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
+<br>
 # [Riot (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
@@ -676,6 +685,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [ThePooN (13-Oct-2019)](https://imgcc.xyz/175o/jANUIr)
 ![](https://i.imgur.com/d6J8OuC.png)
+<br>
+# [Umbre (Sep-2020)](https://mega.nz/file/RCRnzILT#4Hhd1zVlbRWzyyzak-YKwVG3sTwrS2pUbo1RTAfheYQ)
+![](https://i.imgur.com/cRW97xv.png)
 <br>
 # [Umbre (Rohulk)](https://skins.osuck.net/index.php?newsid=801)
 ![](https://cdn.discordapp.com/attachments/660554455808475149/687194357472034827/unknown.png)
