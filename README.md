@@ -56,6 +56,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Abyssal (Apr-2020)](https://mega.nz/file/MGphTJxY#qdooG9O6jpd0vl2Az1jMSNmHn15FZ5-bb1gtxVAm3CQ)
 ![](https://i.imgur.com/POXnwl0.png)
 <br>
+# [aetrna (Sep-2020)](https://mega.nz/file/gaJW0YDK#dN_bjoQTm8VA68kec9rsaEtzo7isMkfxpbJi1b-h2tg)
+![](https://i.imgur.com/etIPMAN.png)
+<br>
 # [aetrna (Aug-2020)](https://mega.nz/file/5ehFgZia#zKM7zdk2JKeImA8HxN2e0F1c0w1y0wdyF7QNGPAafQ4)
 ![](https://i.imgur.com/wIedqLq.png)
 <br>
@@ -281,6 +284,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Freddie Benson (Rafis)](https://gerwi.s-ul.eu/pLThfVUy)
 ![](https://i.imgur.com/PSE11Mv.png)
 <br>
+# [Freeway Shuffle (Vaxei/RyuK)](https://gerwi3.s-ul.eu/OUBeBmMn)
+![](https://i.imgur.com/FfVXbx6.png)
+<br>
 # [Frosiito (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
@@ -308,6 +314,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [idke 1.2](https://idke.s-ul.eu/gWWsQDGI)
 ![](https://i.imgur.com/xA7SRxT.png)
 <br>
+# [im a fancy lad (Sep-2020)](https://mega.nz/file/UKAigCAa#B9w9CnA1ejrg8wV5F4FxUxoF57_VO8KrMZrOvxVlwJE)
+![](https://i.imgur.com/Ui3YPM3.png)
+<br>
 # [im a fancy lad (July-2020)](https://mega.nz/file/wLIymSRI#KjcsKpRgO-tfguqLZbvlcWktUuDBBBzH8rwIGop7DrY)
 ![](https://i.imgur.com/fYmz1J1.png)
 <br>
@@ -325,6 +334,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [InBefore (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
+<br>
+# [InBefore (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
 <br>
 # [Informous old](https://mega.nz/file/Ef4EzCwC#iQzRNjxn5Q_MUvcf9Q3gRQ0M3dB2zAdouqlH4xSymkw)
 ![](https://i.imgur.com/BEa8BGK.png)
@@ -775,6 +787,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [XlI/RyuK (Yugen)](https://tetsui.s-ul.eu/t3yyAk3g2QugMs9O)
 ![](https://i.imgur.com/IsMr3fQ.png)
+<br>
+# [XVoIR)](https://mega.nz/file/BGQkSKhD#yPvENN1nxscwt36Q3Xk22icGHoRtxhadf6bT_w7fAmc)
+![](https://i.imgur.com/cq1kTRD.png)
 <br>
 # [YokesPai (Feb-2020)](https://cdn.discordapp.com/attachments/510553668475551755/675075156565164051/YokesPai.osk)
 ![](https://i.imgur.com/IVC0ANI.png)
