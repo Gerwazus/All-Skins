@@ -74,6 +74,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Akolibed (talala)](https://mega.nz/file/kaQjXACI#J17EMV-L2pIdTHfZ4M8UkeO0iWdRfFivt1oqqCp2uAc)
 ![](https://i.imgur.com/eI6pwwg.png)
 <br>
+# [Akolibed (RyuK/Vaxei ver.)](https://gerwi3.s-ul.eu/OUBeBmMn)
+![](https://i.imgur.com/FfVXbx6.png)
+<br>
 # [Akolibed (Vaxei)](http://puu.sh/z0YMU/217e926ca9.osk)
 ![](https://i.imgur.com/IeYmy2H.png)
 <br>
@@ -205,6 +208,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [DanyL (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
+<br>
+# [dejiz (Oct-2020)](https://mega.nz/file/Ff5w1SRa#r7yEMpYG5E_jdSa4G3kpBYQpBRvHfYPATevhWVIbkPI)
+![](https://i.imgur.com/q3sad7U.png)
 <br>
 # [dejiz (RafisxVarvalian)](https://mega.nz/#!R6ZTiYwA!-TXUHDk62SPT2MDqzSqDZ1zz_9WS9uGOh6e9bujGlrU)
 ![](https://i.imgur.com/YlH2YaE.png)
@@ -340,6 +346,12 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [Informous old](https://mega.nz/file/Ef4EzCwC#iQzRNjxn5Q_MUvcf9Q3gRQ0M3dB2zAdouqlH4xSymkw)
 ![](https://i.imgur.com/BEa8BGK.png)
+<br>
+# [Intercambing (Oct-2020)](https://mega.nz/file/9Sg0nIKT#9GdSB4Z9TaaUmP4k8SblS2Vgwkb5v8hnHilBbW8GoDI)
+![](https://i.imgur.com/tE5DLoG.png)
+<br>
+# [Jabahh (RyuK/Vaxei ver.)](https://gerwi3.s-ul.eu/OUBeBmMn)
+![](https://i.imgur.com/FfVXbx6.png)
 <br>
 # [jp0806 (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
@@ -677,6 +689,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Spare (WhiteCat)](https://gerwi2.s-ul.eu/GNrMFZIT)
 ![](https://i.imgur.com/zGkZ5lN.png)
 <br>
+# [SrChispa (Oct-2020)](https://drive.google.com/u/0/uc?id=1AY7v1_ltqVrcj1Y3UhHQz2QsGgQ1_I6O&export=download)
+![](https://i.imgur.com/MlM6IgI.png)
+<br>
 # [SrChispa (Rafis)](https://mega.nz/file/BaggWIKC#6vfZZ4faJTpbVzgdWtGNTSq7lqc3dXT6CORPkyh-egE)
 ![](https://i.imgur.com/W42imnN.png)
 <br>
@@ -694,6 +709,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [Tj7223 (Varvalian)](https://skins.osuck.net/index.php?newsid=485)
 ![](https://cdn.discordapp.com/attachments/660554455808475149/687195537547591680/unknown.png)
+<br>
+# [thaibuy (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
+![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
 # [ThePooN (13-Oct-2019)](https://imgcc.xyz/175o/jANUIr)
 ![](https://i.imgur.com/d6J8OuC.png)
