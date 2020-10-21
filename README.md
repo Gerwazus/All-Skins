@@ -56,6 +56,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Abyssal (Apr-2020)](https://mega.nz/file/MGphTJxY#qdooG9O6jpd0vl2Az1jMSNmHn15FZ5-bb1gtxVAm3CQ)
 ![](https://i.imgur.com/POXnwl0.png)
 <br>
+# [Abyssal (WhiteCat)](https://gerwi2.s-ul.eu/GNrMFZIT )
+![](https://i.imgur.com/zGkZ5lN.png)
+<br>
 # [aetrna (Sep-2020)](https://mega.nz/file/gaJW0YDK#dN_bjoQTm8VA68kec9rsaEtzo7isMkfxpbJi1b-h2tg)
 ![](https://i.imgur.com/etIPMAN.png)
 <br>
@@ -464,6 +467,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [mcy4 (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
+# [mcy4 (Rafis)](https://mega.nz/file/IGJxhayC#01mTMqqopSC8WfixUhQ7JSVJv7j2wywtwsGECrps8X0)
+![](https://i.imgur.com/HvONroS.png)
+<br>
 # [Merami (Apr-2019)](https://mega.nz/#!RPQygYIR!VEAcwbvau1DVzzRW3kArIkaH_gxXWFYwVzE5hK-Fkuo)
 ![](https://i.imgur.com/koYJmag.png)
 <br>
@@ -547,6 +553,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [Nameless Player (31-Jan-2019)](https://b.catgirlsare.sexy/N5S2.zip)
 ![](https://i.imgur.com/Zew1Ol2.png)
+<br>
+# [Neox (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
 <br>
 # [Neox (Rafis+RyuK+Vaxei)](https://gerwi3.s-ul.eu/OUBeBmMn)
 ![](https://i.imgur.com/FfVXbx6.png)
@@ -667,6 +676,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [Shizuru- (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
+<br>
+# [Skycries (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
 <br>
 # [Skydiver (Mathi)](http://skins.osuck.net/index.php?newsid=605)
 ![](https://i.imgur.com/FoIXXPL.png)
