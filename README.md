@@ -413,6 +413,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Lifeline (boop)](https://mega.nz/file/EDwxQZyT#bHTNT_7ku88aRBL_J2xS8OOkANzw6jsSKSbjg1Rm8Wc)
 ![](https://i.imgur.com/MFwVPUJ.png)
 <br>
+# [Lifeline (HaHaBear)](https://mega.nz/file/EHgC2LRQ#V8PYOYSwl9LfhDnq-AS2IMhdlncnS6p7zNI5q_BfJi8)
+![](https://i.imgur.com/todq13J.png)
+<br>
 # [Lifeline (Rafis)](https://mega.nz/file/FKQjXKpT#vHEVZzcqjIk1bVG1bJXOK--VbJYNv0fjf63HRyiMb2U)
 ![](https://i.imgur.com/2JKuNFT.png)
 <br>
@@ -421,6 +424,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [Lifeline (Rafis3)](https://mega.nz/file/QTxyAapB#BOMnKuMhtyQby4VJrGam-MFATo8JXYhRWidWVSoJh7U)
 ![](https://i.imgur.com/WdsTjUn.png)
+<br>
+# [Lifeline (Sumi Sakurasawa)](https://mega.nz/file/gOhSjLSJ#HRqdq9u93WbGVlPTx9UQUEKBlKvUeWEuu3tOmLH-gR4)
+![](https://i.imgur.com/GdhJE2d.png)
 <br>
 # [Maiaz (fieryrage)](https://gerwi3.s-ul.eu/JhZHOOLC)
 ![](https://i.imgur.com/ju3fyVW.png)
