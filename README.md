@@ -566,6 +566,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Neox (Rafis+RyuK+Vaxei)](https://gerwi3.s-ul.eu/OUBeBmMn)
 ![](https://i.imgur.com/FfVXbx6.png)
 <br>
+# [nick1324 (Nov-2020)](https://mega.nz/file/kHpywIAD#A-OWL0UMH6yTKzRPvQa98gSZOeKNixmeIWqwOp5hAmY)
+![](https://i.imgur.com/0Qjkf4k.png)
+<br>
 # [Nicki Minaj (Parkes)](https://mega.nz/file/EfgVxBYI#HYoXpZUJnL9TZdI7hxphHMOH9OqHmkeM_wYu_wDuRMs)
 ![](https://i.imgur.com/NFAyI9x.png)
 <br>
@@ -652,6 +655,12 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [rip fc (Rafis)](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://osu.ppy.sh/ss/13422086/af38)
+<br>
+# [rip fc (RyuK/Rafis)](https://mega.nz/#!QTwlhbyA!rUc-i_PdyNNJmF8I8_o0rOQ87r1ZgxX8i5fzxAxqkgE)
+![](https://i.imgur.com/OVy47gw.png)
+<br>
+# [Rupertion (bloo)](https://mega.nz/file/AbAgELLI#8mw6KS-MVpBxVf1IJ6nMi-D-h4p_KwircwonqCQoEK0)
+![](https://i.imgur.com/TrR82p6.png)
 <br>
 # [RyuK (- dumii ryan edit)](http://puu.sh/DWnVu/fd303fb063.osk)
 ![](https://i.imgur.com/dV05Coa.png)
@@ -748,6 +757,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [unko 2019](https://gerwi3.s-ul.eu/kw1CDWs4)
 ![](https://i.imgur.com/axb9Omn.png)
+<br>
+# [Utami (RyuK/Rafis)](https://mega.nz/#!QTwlhbyA!rUc-i_PdyNNJmF8I8_o0rOQ87r1ZgxX8i5fzxAxqkgE)
+![](https://i.imgur.com/OVy47gw.png)
 <br>
 # [Utami (WubwoofWolf)](https://mega.nz/file/YXZjnQbQ#DB4bvkDBR5pO_kLF7wHneeiUZl8Cc3YQ_7rXNG2Q39s)
 ![](https://i.imgur.com/jxBCmZM.png)
