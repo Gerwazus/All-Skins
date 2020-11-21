@@ -503,6 +503,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [MightyDoc (Rafis-old)](https://mediafire.com/?8sj6qnbz34iaupp)
 ![](https://i.imgur.com/0Brisjn.png)
 <br>
+# [MightyDoc (Vaxei-404)](https://gerwi2.s-ul.eu/whrTYola)
+![](https://i.imgur.com/rS9VSXm.png)
+<br<
 # [Milkteaism (Vaxei)](http://puu.sh/z0YMU/217e926ca9.osk)
 ![](https://i.imgur.com/IeYmy2H.png)
 <br>
