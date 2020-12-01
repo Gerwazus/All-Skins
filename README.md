@@ -200,11 +200,17 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [ChocoPafe (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
 ![](https://i.imgur.com/Gpu8gGz.png)
 <br>
+# [ciru (boop)](https://mega.nz/file/EDwxQZyT#bHTNT_7ku88aRBL_J2xS8OOkANzw6jsSKSbjg1Rm8Wc)
+![](https://i.imgur.com/MFwVPUJ.png)
+<br>
 # [Crezz](https://mega.nz/file/0TpjxBxQ#Z-fxf1XGWL3xM3SLgLCBParej2EJmgzhiM-epyW8YOA)
 ![](https://i.imgur.com/EgmuWQO.png)
 <br>
 # [CXu](https://mega.nz/file/pD4V3SII#MTgm9Cu_ZkAvYMAtUzxDVTsoKG6IQMvC67SbfpxRN8E)
 ![](https://i.imgur.com/NJCMYZk.png)
+<br>
+# [CXu](https://mega.nz/file/UfgTzABL#xOcHi13NcBeLniqI3aWm8fnRZjX2v-jowb-COAbKSrk)
+![](https://i.imgur.com/O7y0bUn.png)
 <br>
 # [Czapek](https://mega.nz/file/kHpHgS7B#cqcW4ojGYYmArkHllfzCAaVKZE-gS8jaq1gOxMQA8Hw)
 ![](https://i.imgur.com/RzA4ekr.png)
@@ -427,6 +433,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [Lifeline (Sumi Sakurasawa)](https://mega.nz/file/gOhSjLSJ#HRqdq9u93WbGVlPTx9UQUEKBlKvUeWEuu3tOmLH-gR4)
 ![](https://i.imgur.com/GdhJE2d.png)
+<br>
+# [lokikaos (boop)](https://mega.nz/file/wbgXnSJS#VYkYqZlcSz6keQAl9QSSaC2H47hBh16Mtpw--QChW78)
+![](https://i.imgur.com/dNsTnuS.png)
 <br>
 # [Maiaz (fieryrage)](https://gerwi3.s-ul.eu/JhZHOOLC)
 ![](https://i.imgur.com/ju3fyVW.png)
@@ -790,6 +799,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [Vaxei (404)](https://joofixd.s-ul.eu/Ia93XGt5)
 ![](https://camo.githubusercontent.com/7a0cf2b830c8f7813f190af0e00575ca13b4e5e0/68747470733a2f2f6f73752e7070792e73682f73732f31333438383938392f61373661)
+<br>
+# [Vaxei (CK-blue)](https://mega.nz/file/8O5jWQyK#448hYewFgZR8qydT9uxaDPu3Fk71nYp8CQR5qSSiM88)
+![](https://i.imgur.com/RmAkbBS.png)
 <br>
 # [Vaxei (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
 ![](https://osu.ppy.sh/ss/13839226/eaad)
