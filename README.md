@@ -514,7 +514,10 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [MightyDoc (Vaxei-404)](https://gerwi2.s-ul.eu/whrTYola)
 ![](https://i.imgur.com/rS9VSXm.png)
-<br<
+<br>
+# [Milkteaism (Dec-2020)](https://mega.nz/file/wC4w1RBY#8lGg_BDPDS72xm-m6Ago8qyw4NU_nW62nZolUgYH8R8)
+![](https://i.imgur.com/huZXzEH.png)
+<br>
 # [Milkteaism (Vaxei)](http://puu.sh/z0YMU/217e926ca9.osk)
 ![](https://i.imgur.com/IeYmy2H.png)
 <br>
