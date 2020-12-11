@@ -239,6 +239,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 # [Doki](https://mega.nz/#!4TJFiSxJ!DSIKyILCXPM3eDI4b8O8wnRV18GsQfL3liw1tqatWco)
 ![](https://i.imgur.com/EecP5hX.png)
 <br>
+# [edizberkserbest (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
+<br>
 # [Emilia (23-Nov-2019)](https://gerwi2.s-ul.eu/Eg5jjPPP)
 ![](https://i.imgur.com/VZ2smBl.png)
 <br>
@@ -406,6 +409,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [KoaLeahq (Apr-2020)](https://mega.nz/#!UeZHhQQA!LCVHjJkYGwNhm7TjtFvbA4iNsLLCXT2FdK9OhH87glE)
 ![](https://i.imgur.com/LfFSwOw.png)
+<br>
+# [Kurumiw (elohere)](http://puu.sh/pDnzg/2d2dacfc85.osk)
+![](https://osu.ppy.sh/ss/13839226/eaad)
 <br>
 # [lain (Rafis)](https://gerwi2.s-ul.eu/I8WswyCk)
 ![](https://i.imgur.com/LnkN8Bl.png)
@@ -772,6 +778,9 @@ If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFD
 <br>
 # [unko 2019](https://gerwi3.s-ul.eu/kw1CDWs4)
 ![](https://i.imgur.com/axb9Omn.png)
+<br>
+# [Uno (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
 <br>
 # [Utami (RyuK/Rafis)](https://mega.nz/#!QTwlhbyA!rUc-i_PdyNNJmF8I8_o0rOQ87r1ZgxX8i5fzxAxqkgE)
 ![](https://i.imgur.com/OVy47gw.png)
